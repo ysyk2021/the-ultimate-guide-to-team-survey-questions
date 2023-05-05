@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how effectively the team manages relationships with community organizations or groups is important for building strong partnerships and achieving shared goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages relationships with community organizations or groups. Consider whether you feel that relationships are built and maintained in a respectful and collaborative manner, and whether there is a clear process for managing these relationships.
-
-2. Identify any challenges: Identify any challenges or issues with how effectively the team manages relationships with community organizations or groups. These may include a lack of communication or transparency around partnership management, a perception that certain team members are better at building and maintaining relationships than others, or a lack of resources or support for effective partnership management.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages relationships with community organizations or groups. These may include establishing clearer guidelines or expectations around partnership management, providing additional training or support to team members to enhance their partnership management skills, or investing in new technologies or tools to enhance partnership management and reporting.
-
-4. Seek feedback: Seek feedback from other team members as well as community organizations or groups to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages relationships with them.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages relationships with community organizations or groups. Consider whether you feel that relationships are built and maintained in a respectful and collaborative manner, and whether there is a clear process for managing these relationships.
+2. **Identify any challenges**: Identify any challenges or issues with how effectively the team manages relationships with community organizations or groups. These may include a lack of communication or transparency around partnership management, a perception that certain team members are better at building and maintaining relationships than others, or a lack of resources or support for effective partnership management.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages relationships with community organizations or groups. These may include establishing clearer guidelines or expectations around partnership management, providing additional training or support to team members to enhance their partnership management skills, or investing in new technologies or tools to enhance partnership management and reporting.
+4. **Seek feedback**: Seek feedback from other team members as well as community organizations or groups to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages relationships with them.
 
 Sample Answers
 --------------

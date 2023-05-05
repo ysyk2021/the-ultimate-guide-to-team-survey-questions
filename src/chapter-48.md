@@ -6,13 +6,10 @@ How to Answer
 
 Effective delegation of tasks and responsibilities is important for ensuring that work is performed efficiently and that team members are empowered to make meaningful contributions. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team delegates tasks and responsibilities. Consider whether there is a clear understanding of roles and responsibilities, and whether team members feel empowered to take ownership of their work.
-
-2. Identify any challenges: Identify any challenges or issues with delegating tasks and responsibilities. These may include a lack of clarity around roles and responsibilities, a perception that certain team members are overburdened while others are underutilized, or misunderstandings or miscommunications around the importance of delegation.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with delegating tasks and responsibilities. These may include investing in training or development opportunities to enhance skills and competencies related to delegation, adjusting team structures to better promote and support delegation, or establishing clearer guidelines or expectations around delegation.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with delegating tasks and responsibilities.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team delegates tasks and responsibilities. Consider whether there is a clear understanding of roles and responsibilities, and whether team members feel empowered to take ownership of their work.
+2. **Identify any challenges**: Identify any challenges or issues with delegating tasks and responsibilities. These may include a lack of clarity around roles and responsibilities, a perception that certain team members are overburdened while others are underutilized, or misunderstandings or miscommunications around the importance of delegation.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with delegating tasks and responsibilities. These may include investing in training or development opportunities to enhance skills and competencies related to delegation, adjusting team structures to better promote and support delegation, or establishing clearer guidelines or expectations around delegation.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with delegating tasks and responsibilities.
 
 Sample Answers
 --------------

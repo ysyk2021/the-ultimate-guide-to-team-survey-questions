@@ -6,13 +6,10 @@ How to Answer
 
 Creating an environment where team members feel comfortable sharing their opinions and ideas is important for fostering creativity and innovation. Here are some tips on how to answer this question:
 
-1. Consider your level of comfort: Before answering, consider your own level of comfort in sharing your opinions and ideas with the team. Think about whether you feel heard and respected when you express your thoughts, and whether you feel safe to share even dissenting viewpoints.
-
-2. Identify any challenges: Identify any challenges or issues that may be affecting your level of comfort in sharing your opinions and ideas with the team. These may include a fear of judgment or negative feedback, a perception that certain team members dominate discussions, or a lack of trust among team members.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues that may be affecting your level of comfort in sharing your opinions and ideas with the team. These may include creating more opportunities for open discussion and feedback, establishing clearer guidelines for respectful communication, or investing in team-building activities to strengthen trust and collaboration among team members.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with sharing their opinions and ideas with the team.
+1. **Consider your level of comfort**: Before answering, consider your own level of comfort in sharing your opinions and ideas with the team. Think about whether you feel heard and respected when you express your thoughts, and whether you feel safe to share even dissenting viewpoints.
+2. **Identify any challenges**: Identify any challenges or issues that may be affecting your level of comfort in sharing your opinions and ideas with the team. These may include a fear of judgment or negative feedback, a perception that certain team members dominate discussions, or a lack of trust among team members.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues that may be affecting your level of comfort in sharing your opinions and ideas with the team. These may include creating more opportunities for open discussion and feedback, establishing clearer guidelines for respectful communication, or investing in team-building activities to strengthen trust and collaboration among team members.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with sharing their opinions and ideas with the team.
 
 Sample Answers
 --------------

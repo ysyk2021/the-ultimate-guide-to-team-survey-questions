@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how the team addresses and resolves issues related to workplace safety and health is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Consider your experience: Before answering, reflect on your own experience with workplace safety and health within the team. Consider whether you feel that issues are addressed and resolved effectively.
-
-2. Identify any challenges: Identify any challenges or issues with how the team addresses and resolves issues related to workplace safety and health. These may include a lack of communication or transparency, inadequate training or resources, or a perception that certain team members are at greater risk than others.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team addresses and resolves issues related to workplace safety and health. These may include providing additional training or resources to ensure that all team members have the knowledge and skills necessary to work safely, establishing clearer protocols for reporting and addressing safety concerns, or investing in new technologies or tools to enhance workplace safety and health.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team addresses and resolves issues related to workplace safety and health.
+1. **Consider your experience**: Before answering, reflect on your own experience with workplace safety and health within the team. Consider whether you feel that issues are addressed and resolved effectively.
+2. **Identify any challenges**: Identify any challenges or issues with how the team addresses and resolves issues related to workplace safety and health. These may include a lack of communication or transparency, inadequate training or resources, or a perception that certain team members are at greater risk than others.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team addresses and resolves issues related to workplace safety and health. These may include providing additional training or resources to ensure that all team members have the knowledge and skills necessary to work safely, establishing clearer protocols for reporting and addressing safety concerns, or investing in new technologies or tools to enhance workplace safety and health.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team addresses and resolves issues related to workplace safety and health.
 
 Sample Answers
 --------------

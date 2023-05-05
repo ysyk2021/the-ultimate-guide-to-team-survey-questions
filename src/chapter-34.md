@@ -6,13 +6,10 @@ How to Answer
 
 Identifying a team's greatest strengths is important for building on those successes and achieving even greater results. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the team and consider what you believe to be its greatest strengths. Consider areas where the team has consistently performed well or overcome challenges, and identify any standout team members who have contributed to these successes.
-
-2. Identify specific examples: Identify specific examples of times when the team demonstrated its greatest strengths. These may include instances where the team collaborated effectively to achieve a shared goal, overcame a difficult challenge, or innovated to create a new solution.
-
-3. Highlight shared values: Highlight shared values or characteristics that contribute to the team's greatest strengths. These may include qualities like trust, respect, open communication, or a commitment to excellence.
-
-4. Seek feedback: Seek feedback from other team members to ensure that your assessment of the team's greatest strengths aligns with their experiences and perceptions.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the team and consider what you believe to be its greatest strengths. Consider areas where the team has consistently performed well or overcome challenges, and identify any standout team members who have contributed to these successes.
+2. **Identify specific examples**: Identify specific examples of times when the team demonstrated its greatest strengths. These may include instances where the team collaborated effectively to achieve a shared goal, overcame a difficult challenge, or innovated to create a new solution.
+3. **Highlight shared values**: Highlight shared values or characteristics that contribute to the team's greatest strengths. These may include qualities like trust, respect, open communication, or a commitment to excellence.
+4. **Seek feedback**: Seek feedback from other team members to ensure that your assessment of the team's greatest strengths aligns with their experiences and perceptions.
 
 Sample Answers
 --------------

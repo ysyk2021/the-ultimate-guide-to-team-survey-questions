@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how well the team prioritizes and allocates its social media and online presence resources is important for ensuring effective communication and engagement with customers and stakeholders. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how the team prioritizes and allocates its social media and online presence resources. Consider whether you feel that the team is effectively leveraging these channels to communicate with customers and stakeholders.
-
-2. Identify any challenges: Identify any challenges or issues with how the team prioritizes and allocates its social media and online presence resources. These may include a lack of clear goals or objectives for social media and online presence, difficulty managing multiple channels or platforms, or a perception that certain channels or platforms receive more attention than others.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team prioritizes and allocates its social media and online presence resources. These may include establishing clearer goals or objectives for social media and online presence, developing a more coordinated approach to managing multiple channels or platforms, or investing in new technologies or tools to enhance engagement and analytics.
-
-4. Seek feedback: Seek feedback from other team members and stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team prioritizes and allocates its social media and online presence resources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how the team prioritizes and allocates its social media and online presence resources. Consider whether you feel that the team is effectively leveraging these channels to communicate with customers and stakeholders.
+2. **Identify any challenges**: Identify any challenges or issues with how the team prioritizes and allocates its social media and online presence resources. These may include a lack of clear goals or objectives for social media and online presence, difficulty managing multiple channels or platforms, or a perception that certain channels or platforms receive more attention than others.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team prioritizes and allocates its social media and online presence resources. These may include establishing clearer goals or objectives for social media and online presence, developing a more coordinated approach to managing multiple channels or platforms, or investing in new technologies or tools to enhance engagement and analytics.
+4. **Seek feedback**: Seek feedback from other team members and stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team prioritizes and allocates its social media and online presence resources.
 
 Sample Answers
 --------------

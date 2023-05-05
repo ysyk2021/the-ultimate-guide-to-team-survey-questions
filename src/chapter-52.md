@@ -6,13 +6,10 @@ How to Answer
 
 Alignment between personal and team goals is critical for promoting motivation and engagement among team members. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team's goals align with your personal goals. Consider whether you feel that your individual contributions are valued and aligned with the team's overall objectives, and whether there is a sense of shared purpose among team members.
-
-2. Identify any challenges: Identify any challenges or issues with alignment between personal and team goals. These may include a lack of clarity around team goals or priorities, a perception that certain team members are excluded from goal-setting or decision-making processes, or a lack of recognition or rewards for individual contributions.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with alignment between personal and team goals. These may include providing training or support to help team members understand and contribute to team goals, establishing clearer guidelines or policies around goal-setting and decision-making, or adjusting team structures to better support individual contributions and recognition.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with alignment between personal and team goals.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team's goals align with your personal goals. Consider whether you feel that your individual contributions are valued and aligned with the team's overall objectives, and whether there is a sense of shared purpose among team members.
+2. **Identify any challenges**: Identify any challenges or issues with alignment between personal and team goals. These may include a lack of clarity around team goals or priorities, a perception that certain team members are excluded from goal-setting or decision-making processes, or a lack of recognition or rewards for individual contributions.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with alignment between personal and team goals. These may include providing training or support to help team members understand and contribute to team goals, establishing clearer guidelines or policies around goal-setting and decision-making, or adjusting team structures to better support individual contributions and recognition.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with alignment between personal and team goals.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 Building and managing relationships with industry influencers or thought leaders can be critical for promoting growth and development within a team. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages relationships with industry influencers or thought leaders. Consider whether there is a clear strategy for building and managing these relationships, whether the team has established strong relationships with key influencers or thought leaders, and whether these relationships have been beneficial for the team.
-
-2. Identify any challenges: Identify any challenges or issues with managing relationships with industry influencers or thought leaders. These may include a lack of clarity around how to build and manage these relationships effectively, difficulty in identifying key influencers or thought leaders, or challenges in establishing trust and rapport with these individuals.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with industry influencers or thought leaders. These may include providing training or support to help team members build and manage relationships more effectively, establishing clearer guidelines or policies around relationship-building, or adjusting team structures to better support effective relationship management.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with industry influencers or thought leaders.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages relationships with industry influencers or thought leaders. Consider whether there is a clear strategy for building and managing these relationships, whether the team has established strong relationships with key influencers or thought leaders, and whether these relationships have been beneficial for the team.
+2. **Identify any challenges**: Identify any challenges or issues with managing relationships with industry influencers or thought leaders. These may include a lack of clarity around how to build and manage these relationships effectively, difficulty in identifying key influencers or thought leaders, or challenges in establishing trust and rapport with these individuals.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with industry influencers or thought leaders. These may include providing training or support to help team members build and manage relationships more effectively, establishing clearer guidelines or policies around relationship-building, or adjusting team structures to better support effective relationship management.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with industry influencers or thought leaders.
 
 Sample Answers
 --------------

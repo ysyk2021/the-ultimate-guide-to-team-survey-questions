@@ -6,13 +6,10 @@ How to Answer
 
 Effective communication with external stakeholders is critical for building and maintaining relationships that drive success. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team communicates with external stakeholders. Consider whether there are clear lines of communication, whether stakeholders are kept informed of relevant developments, and whether feedback from stakeholders is valued and acted upon.
-
-2. Identify any challenges: Identify any challenges or issues with communicating with external stakeholders. These may include a lack of clarity around who is responsible for communicating with stakeholders, inconsistent messaging or branding, or misunderstandings or miscommunications around stakeholder needs or preferences.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with communicating with external stakeholders. These may include investing in additional resources or training to improve communication skills, establishing clearer guidelines or policies around communicating with stakeholders, or adjusting team structures to better support communication with stakeholders.
-
-4. Seek feedback: Seek feedback from other team members and external stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with communication.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team communicates with external stakeholders. Consider whether there are clear lines of communication, whether stakeholders are kept informed of relevant developments, and whether feedback from stakeholders is valued and acted upon.
+2. **Identify any challenges**: Identify any challenges or issues with communicating with external stakeholders. These may include a lack of clarity around who is responsible for communicating with stakeholders, inconsistent messaging or branding, or misunderstandings or miscommunications around stakeholder needs or preferences.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with communicating with external stakeholders. These may include investing in additional resources or training to improve communication skills, establishing clearer guidelines or policies around communicating with stakeholders, or adjusting team structures to better support communication with stakeholders.
+4. **Seek feedback**: Seek feedback from other team members and external stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with communication.
 
 Sample Answers
 --------------

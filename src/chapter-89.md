@@ -6,13 +6,10 @@ How to Answer
 
 Inclusion in decision-making is critical for building trust and promoting collaboration among team members. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how often you feel included in important decisions made by the team. Consider whether there are clear opportunities for input and feedback, whether all team members are given a chance to participate in decision-making, and whether there is a culture of inclusivity and transparency.
-
-2. Identify any challenges: Identify any challenges or issues with inclusion in decision-making. These may include a perception that certain team members are excluded from decision-making processes, a lack of clarity around decision-making roles and responsibilities, or a lack of trust or transparency in decision-making processes.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with inclusion in decision-making. These may include establishing clearer guidelines or policies around decision-making roles and responsibilities, providing training or support to help team members navigate differences in decision-making styles, or adjusting team structures to better support inclusivity and transparency in decision-making.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with inclusion in decision-making.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how often you feel included in important decisions made by the team. Consider whether there are clear opportunities for input and feedback, whether all team members are given a chance to participate in decision-making, and whether there is a culture of inclusivity and transparency.
+2. **Identify any challenges**: Identify any challenges or issues with inclusion in decision-making. These may include a perception that certain team members are excluded from decision-making processes, a lack of clarity around decision-making roles and responsibilities, or a lack of trust or transparency in decision-making processes.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with inclusion in decision-making. These may include establishing clearer guidelines or policies around decision-making roles and responsibilities, providing training or support to help team members navigate differences in decision-making styles, or adjusting team structures to better support inclusivity and transparency in decision-making.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with inclusion in decision-making.
 
 Sample Answers
 --------------

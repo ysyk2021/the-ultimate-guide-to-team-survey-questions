@@ -6,13 +6,10 @@ How to Answer
 
 Effective workload management is critical for achieving team goals and promoting productivity. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team prioritizes and manages its workload. Consider whether there is a clear understanding of individual responsibilities and project timelines, whether team members are able to prioritize tasks effectively, and whether there are any obstacles to effective workload management.
-
-2. Identify any challenges: Identify any challenges or issues with workload management within the team. These may include a lack of clarity around individual responsibilities and project timelines, difficulty in prioritizing tasks effectively, or challenges in managing workload due to competing demands or other obstacles.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with workload management within the team. These may include providing training or support to help team members prioritize tasks effectively, establishing clearer guidelines or policies around workload management, or adjusting team structures to better support effective workload management.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with workload management.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team prioritizes and manages its workload. Consider whether there is a clear understanding of individual responsibilities and project timelines, whether team members are able to prioritize tasks effectively, and whether there are any obstacles to effective workload management.
+2. **Identify any challenges**: Identify any challenges or issues with workload management within the team. These may include a lack of clarity around individual responsibilities and project timelines, difficulty in prioritizing tasks effectively, or challenges in managing workload due to competing demands or other obstacles.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with workload management within the team. These may include providing training or support to help team members prioritize tasks effectively, establishing clearer guidelines or policies around workload management, or adjusting team structures to better support effective workload management.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with workload management.
 
 Sample Answers
 --------------

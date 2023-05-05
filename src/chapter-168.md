@@ -6,13 +6,10 @@ How to Answer
 
 Managing and mitigating risks related to compliance or legal issues is critical for maintaining a strong and ethical team culture. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team manages and mitigates risks related to compliance or legal issues. Consider whether you feel that the team has a strong understanding of relevant laws and regulations, and whether there is a culture of compliance and risk management within the team.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team manages and mitigates risks related to compliance or legal issues. These may include a lack of communication or collaboration around compliance or legal issues, a perception that certain team members are not following proper procedures or protocols, or a lack of resources or support for compliance and risk management.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team manages and mitigates risks related to compliance or legal issues. These may include establishing clearer communication channels for sharing information about compliance and risk management, providing additional training or support to team members to enhance their understanding of relevant laws and regulations, or investing in new technologies or tools to enhance compliance and risk management.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team manages and mitigates risks related to compliance or legal issues.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team manages and mitigates risks related to compliance or legal issues. Consider whether you feel that the team has a strong understanding of relevant laws and regulations, and whether there is a culture of compliance and risk management within the team.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team manages and mitigates risks related to compliance or legal issues. These may include a lack of communication or collaboration around compliance or legal issues, a perception that certain team members are not following proper procedures or protocols, or a lack of resources or support for compliance and risk management.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team manages and mitigates risks related to compliance or legal issues. These may include establishing clearer communication channels for sharing information about compliance and risk management, providing additional training or support to team members to enhance their understanding of relevant laws and regulations, or investing in new technologies or tools to enhance compliance and risk management.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team manages and mitigates risks related to compliance or legal issues.
 
 Sample Answers
 --------------

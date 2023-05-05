@@ -6,13 +6,10 @@ How to Answer
 
 Ensuring that the team's work is aligned with its mission and vision is important for achieving organizational goals and maintaining focus. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how often the team's work is aligned with its mission and vision. Consider whether there is a clear understanding of the mission and vision, and whether team members feel that their work contributes to these priorities.
-
-2. Identify any challenges: Identify any challenges or issues with how often the team's work is aligned with its mission and vision. These may include competing priorities or unclear expectations around the mission and vision, or a perception that certain team members prioritize other tasks over alignment with these priorities.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with aligning the team's work with its mission and vision. These may include establishing clearer communication channels for sharing information about the mission and vision, investing in team-building activities to strengthen relationships and build trust, or adjusting individual performance metrics to better align with organizational priorities.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with aligning the team's work with its mission and vision.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how often the team's work is aligned with its mission and vision. Consider whether there is a clear understanding of the mission and vision, and whether team members feel that their work contributes to these priorities.
+2. **Identify any challenges**: Identify any challenges or issues with how often the team's work is aligned with its mission and vision. These may include competing priorities or unclear expectations around the mission and vision, or a perception that certain team members prioritize other tasks over alignment with these priorities.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with aligning the team's work with its mission and vision. These may include establishing clearer communication channels for sharing information about the mission and vision, investing in team-building activities to strengthen relationships and build trust, or adjusting individual performance metrics to better align with organizational priorities.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with aligning the team's work with its mission and vision.
 
 Sample Answers
 --------------

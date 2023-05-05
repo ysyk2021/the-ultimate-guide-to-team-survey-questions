@@ -6,13 +6,10 @@ How to Answer
 
 Effective communication is critical for building strong relationships and promoting collaboration among team members. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how often team members communicate outside of designated meetings or work times. Consider whether there are opportunities for informal communication, such as through chat or messaging apps, and whether these channels are used effectively.
-
-2. Identify any challenges: Identify any challenges or issues with communication outside of designated meetings or work times. These may include a lack of clarity around appropriate communication channels or expectations, a perception that certain team members are excluded from informal communication channels, or misunderstandings or miscommunications due to differences in communication styles.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with communication outside of designated meetings or work times. These may include establishing clearer guidelines or policies around communication channels and expectations, promoting a culture of inclusivity and open communication, or providing training or support to help team members navigate differences in communication styles.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with communication outside of designated meetings or work times.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how often team members communicate outside of designated meetings or work times. Consider whether there are opportunities for informal communication, such as through chat or messaging apps, and whether these channels are used effectively.
+2. **Identify any challenges**: Identify any challenges or issues with communication outside of designated meetings or work times. These may include a lack of clarity around appropriate communication channels or expectations, a perception that certain team members are excluded from informal communication channels, or misunderstandings or miscommunications due to differences in communication styles.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with communication outside of designated meetings or work times. These may include establishing clearer guidelines or policies around communication channels and expectations, promoting a culture of inclusivity and open communication, or providing training or support to help team members navigate differences in communication styles.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with communication outside of designated meetings or work times.
 
 Sample Answers
 --------------

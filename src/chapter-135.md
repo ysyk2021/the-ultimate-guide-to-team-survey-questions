@@ -6,13 +6,10 @@ How to Answer
 
 Fostering a sense of trust and mutual respect among team members is important for building a positive and productive work environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team fosters a sense of trust and mutual respect among members. Consider whether there is a culture of open communication, collaboration, and support, and whether team members feel comfortable sharing their ideas, concerns, and feedback.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team fosters a sense of trust and mutual respect among members. These may include a lack of transparency or clarity around decision-making processes, a perception that certain team members receive preferential treatment, or a fear of speaking up due to potential retaliation.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with fostering a sense of trust and mutual respect among team members. These may include providing additional training or support to team members to enhance their skills in communication, collaboration, and conflict resolution, establishing clearer guidelines or expectations around decision-making and feedback, or investing in team-building activities to strengthen relationships and build trust.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with fostering a sense of trust and mutual respect among members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team fosters a sense of trust and mutual respect among members. Consider whether there is a culture of open communication, collaboration, and support, and whether team members feel comfortable sharing their ideas, concerns, and feedback.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team fosters a sense of trust and mutual respect among members. These may include a lack of transparency or clarity around decision-making processes, a perception that certain team members receive preferential treatment, or a fear of speaking up due to potential retaliation.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with fostering a sense of trust and mutual respect among team members. These may include providing additional training or support to team members to enhance their skills in communication, collaboration, and conflict resolution, establishing clearer guidelines or expectations around decision-making and feedback, or investing in team-building activities to strengthen relationships and build trust.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with fostering a sense of trust and mutual respect among members.
 
 Sample Answers
 --------------

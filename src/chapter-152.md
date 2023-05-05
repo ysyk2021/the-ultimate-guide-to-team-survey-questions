@@ -6,13 +6,10 @@ How to Answer
 
 Ensuring that all team members have clear roles and responsibilities is important for building trust, transparency, and accountability. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team ensures that all members have clear roles and responsibilities. Consider whether there is a clear understanding of individual roles and responsibilities, and whether team members feel empowered to make decisions within their areas of responsibility.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team ensures that all members have clear roles and responsibilities. These may include misunderstandings or miscommunications around individual roles and responsibilities, competing priorities that can lead to blurred lines of responsibility, or a perception that certain team members are not pulling their weight.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with ensuring that all members have clear roles and responsibilities. These may include establishing clearer communication channels for sharing information about roles and responsibilities, investing in training or development opportunities to enhance skills and competencies, or adjusting team structures to better align with organizational priorities.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with ensuring that all members have clear roles and responsibilities.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team ensures that all members have clear roles and responsibilities. Consider whether there is a clear understanding of individual roles and responsibilities, and whether team members feel empowered to make decisions within their areas of responsibility.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team ensures that all members have clear roles and responsibilities. These may include misunderstandings or miscommunications around individual roles and responsibilities, competing priorities that can lead to blurred lines of responsibility, or a perception that certain team members are not pulling their weight.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with ensuring that all members have clear roles and responsibilities. These may include establishing clearer communication channels for sharing information about roles and responsibilities, investing in training or development opportunities to enhance skills and competencies, or adjusting team structures to better align with organizational priorities.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with ensuring that all members have clear roles and responsibilities.
 
 Sample Answers
 --------------

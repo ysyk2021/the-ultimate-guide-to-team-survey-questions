@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how satisfied team members are with the level of support and resources available for their mental health and well-being is important for creating a healthy and supportive work environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of support and resources available for mental health and well-being. Consider whether you feel that the team provides a safe and supportive environment that promotes positive mental health and well-being.
-
-2. Identify any challenges: Identify any challenges or issues with the level of support and resources available for mental health and well-being. These may include a lack of clear policies or procedures for addressing mental health concerns, a perception that mental health concerns are stigmatized or not taken seriously, or a lack of access to mental health resources or support.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of support and resources available for mental health and well-being. These may include establishing clearer policies and procedures for addressing mental health concerns, providing additional training or support to managers or leaders to help them better support and guide their team members' mental health and well-being, or investing in new technologies or tools to enhance access to mental health resources or support.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of support and resources available for mental health and well-being.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of support and resources available for mental health and well-being. Consider whether you feel that the team provides a safe and supportive environment that promotes positive mental health and well-being.
+2. **Identify any challenges**: Identify any challenges or issues with the level of support and resources available for mental health and well-being. These may include a lack of clear policies or procedures for addressing mental health concerns, a perception that mental health concerns are stigmatized or not taken seriously, or a lack of access to mental health resources or support.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of support and resources available for mental health and well-being. These may include establishing clearer policies and procedures for addressing mental health concerns, providing additional training or support to managers or leaders to help them better support and guide their team members' mental health and well-being, or investing in new technologies or tools to enhance access to mental health resources or support.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of support and resources available for mental health and well-being.
 
 Sample Answers
 --------------

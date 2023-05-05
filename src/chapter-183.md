@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how well the team manages and mitigates risks related to cybersecurity or data privacy is important for protecting sensitive information and maintaining trust with stakeholders. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how the team manages and mitigates risks related to cybersecurity or data privacy. Consider whether you feel that there are sufficient safeguards in place to protect sensitive information, and whether team members are aware of their role in maintaining data security.
-
-2. Identify any challenges: Identify any challenges or issues with how the team manages and mitigates risks related to cybersecurity or data privacy. These may include a lack of clear policies or guidelines around data security, a lack of training or support for team members to help them understand best practices for data security, or a lack of resources or support to invest in new technologies or tools to enhance data security.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team manages and mitigates risks related to cybersecurity or data privacy. These may include establishing clearer policies or guidelines around data security, providing additional training or support to team members to help them better understand best practices for data security, or investing in new technologies or tools to enhance data security.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team manages and mitigates risks related to cybersecurity or data privacy.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how the team manages and mitigates risks related to cybersecurity or data privacy. Consider whether you feel that there are sufficient safeguards in place to protect sensitive information, and whether team members are aware of their role in maintaining data security.
+2. **Identify any challenges**: Identify any challenges or issues with how the team manages and mitigates risks related to cybersecurity or data privacy. These may include a lack of clear policies or guidelines around data security, a lack of training or support for team members to help them understand best practices for data security, or a lack of resources or support to invest in new technologies or tools to enhance data security.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team manages and mitigates risks related to cybersecurity or data privacy. These may include establishing clearer policies or guidelines around data security, providing additional training or support to team members to help them better understand best practices for data security, or investing in new technologies or tools to enhance data security.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team manages and mitigates risks related to cybersecurity or data privacy.
 
 Sample Answers
 --------------

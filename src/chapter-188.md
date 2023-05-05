@@ -6,13 +6,10 @@ How to Answer
 
 Balancing a focus on performance metrics with a consideration for qualitative measures is important for achieving success in any team. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team balances its focus on performance metrics and qualitative measures. Consider whether there is a sense of balance between these priorities, and whether one is given more weight than the other.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team balances its focus on performance metrics and qualitative measures. These may include a lack of clarity or alignment around performance metrics and qualitative goals, a perception that certain team members prioritize one over the other, or a lack of tools or resources for gathering and analyzing qualitative data.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with balancing a focus on performance metrics versus qualitative measures. These may include establishing clearer communication channels for sharing information about performance metrics and qualitative goals, investing in new tools or resources for gathering and analyzing qualitative data, or providing training or support to team members to enhance their skills in interpreting and leveraging both quantitative and qualitative data.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with balancing a focus on performance metrics versus qualitative measures.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team balances its focus on performance metrics and qualitative measures. Consider whether there is a sense of balance between these priorities, and whether one is given more weight than the other.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team balances its focus on performance metrics and qualitative measures. These may include a lack of clarity or alignment around performance metrics and qualitative goals, a perception that certain team members prioritize one over the other, or a lack of tools or resources for gathering and analyzing qualitative data.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with balancing a focus on performance metrics versus qualitative measures. These may include establishing clearer communication channels for sharing information about performance metrics and qualitative goals, investing in new tools or resources for gathering and analyzing qualitative data, or providing training or support to team members to enhance their skills in interpreting and leveraging both quantitative and qualitative data.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with balancing a focus on performance metrics versus qualitative measures.
 
 Sample Answers
 --------------

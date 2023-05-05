@@ -6,13 +6,10 @@ How to Answer
 
 Staying ahead of the competition requires identifying and capitalizing on emerging opportunities. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team identifies and capitalizes on emerging opportunities. Consider whether you feel that the team is proactive in seeking out new opportunities, and whether there is a culture of innovation and risk-taking.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team identifies and capitalizes on emerging opportunities. These may include a lack of awareness or understanding of emerging trends or technologies, a perception that certain projects receive more attention than others, or a lack of resources or support for pursuing new opportunities.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team identifies and capitalizes on emerging opportunities. These may include investing in new technologies or tools to enhance market research and analysis, providing additional training or support to team members to enhance their understanding of emerging trends and technologies, or establishing clearer guidelines or expectations around pursuing new opportunities.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team identifies and capitalizes on emerging opportunities.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team identifies and capitalizes on emerging opportunities. Consider whether you feel that the team is proactive in seeking out new opportunities, and whether there is a culture of innovation and risk-taking.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team identifies and capitalizes on emerging opportunities. These may include a lack of awareness or understanding of emerging trends or technologies, a perception that certain projects receive more attention than others, or a lack of resources or support for pursuing new opportunities.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team identifies and capitalizes on emerging opportunities. These may include investing in new technologies or tools to enhance market research and analysis, providing additional training or support to team members to enhance their understanding of emerging trends and technologies, or establishing clearer guidelines or expectations around pursuing new opportunities.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team identifies and capitalizes on emerging opportunities.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 Effectively prioritizing and allocating supply chain and logistics resources is critical for ensuring that a team operates efficiently and effectively. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team prioritizes and allocates its supply chain and logistics resources. Consider whether you feel that the team has a clear understanding of its priorities and goals, and whether resources are allocated accordingly.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team prioritizes and allocates its supply chain and logistics resources. These may include a lack of communication or transparency around priorities and goals, a perception that certain projects receive more resources than others, or a lack of recognition or reward for efficient use of resources.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team prioritizes and allocates its supply chain and logistics resources. These may include establishing clearer guidelines or expectations around resource allocation, providing additional training or support to team members to enhance their prioritization skills, or investing in new technologies or tools to enhance supply chain and logistics reporting.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team prioritizes and allocates its supply chain and logistics resources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team prioritizes and allocates its supply chain and logistics resources. Consider whether you feel that the team has a clear understanding of its priorities and goals, and whether resources are allocated accordingly.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team prioritizes and allocates its supply chain and logistics resources. These may include a lack of communication or transparency around priorities and goals, a perception that certain projects receive more resources than others, or a lack of recognition or reward for efficient use of resources.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team prioritizes and allocates its supply chain and logistics resources. These may include establishing clearer guidelines or expectations around resource allocation, providing additional training or support to team members to enhance their prioritization skills, or investing in new technologies or tools to enhance supply chain and logistics reporting.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team prioritizes and allocates its supply chain and logistics resources.
 
 Sample Answers
 --------------

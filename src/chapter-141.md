@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how the team prioritizes and allocates its resources to achieve its goals is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how the team prioritizes and allocates its resources. Consider whether you feel that resources are allocated effectively and efficiently.
-
-2. Identify any challenges: Identify any challenges or issues with how the team prioritizes and allocates its resources. These may include a lack of clear goals or objectives, inadequate communication or transparency around resource allocation decisions, or a perception that certain projects or initiatives receive more resources than others.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team prioritizes and allocates its resources. These may include establishing clearer goals or objectives, providing additional training or support to managers to help them make resource allocation decisions, or investing in new technologies or tools to enhance efficiency and streamline workflows.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team prioritizes and allocates its resources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how the team prioritizes and allocates its resources. Consider whether you feel that resources are allocated effectively and efficiently.
+2. **Identify any challenges**: Identify any challenges or issues with how the team prioritizes and allocates its resources. These may include a lack of clear goals or objectives, inadequate communication or transparency around resource allocation decisions, or a perception that certain projects or initiatives receive more resources than others.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team prioritizes and allocates its resources. These may include establishing clearer goals or objectives, providing additional training or support to managers to help them make resource allocation decisions, or investing in new technologies or tools to enhance efficiency and streamline workflows.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team prioritizes and allocates its resources.
 
 Sample Answers
 --------------

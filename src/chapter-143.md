@@ -6,13 +6,10 @@ How to Answer
 
 Collaboration and teamwork are crucial for the success of any team. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of collaboration and teamwork within the team. Consider whether you feel that team members work well together and support each other, and whether there is a sense of unity and shared purpose.
-
-2. Identify any challenges: Identify any challenges or issues with the level of collaboration and teamwork within the team. These may include communication barriers, a lack of trust among team members, or a perception that certain team members are not contributing equally to team efforts.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of collaboration and teamwork within the team. These may include establishing clearer communication channels, providing additional training or support to team members to enhance their collaboration and teamwork skills, or investing in new technologies or tools to enhance collaboration and communication.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of collaboration and teamwork within the team.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of collaboration and teamwork within the team. Consider whether you feel that team members work well together and support each other, and whether there is a sense of unity and shared purpose.
+2. **Identify any challenges**: Identify any challenges or issues with the level of collaboration and teamwork within the team. These may include communication barriers, a lack of trust among team members, or a perception that certain team members are not contributing equally to team efforts.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of collaboration and teamwork within the team. These may include establishing clearer communication channels, providing additional training or support to team members to enhance their collaboration and teamwork skills, or investing in new technologies or tools to enhance collaboration and communication.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of collaboration and teamwork within the team.
 
 Sample Answers
 --------------

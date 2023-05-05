@@ -6,13 +6,10 @@ How to Answer
 
 Evaluating the effectiveness of a team's manager or leader is important for ensuring that the team is being led in a direction that supports growth, productivity, and job satisfaction. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team is led by its current manager/leader. Consider whether you feel that the leader provides clear direction, support, and feedback.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team is led by its current manager/leader. These may include a lack of communication or transparency around expectations and goals, a perception that certain team members receive more support or attention than others, or a lack of recognition or reward for high performance.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team is led by its current manager/leader. These may include establishing clearer guidelines or expectations around leadership, providing additional training or support to the leader to enhance their leadership skills, or investing in new technologies or tools to enhance leadership and reporting.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team is led by its current manager/leader.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team is led by its current manager/leader. Consider whether you feel that the leader provides clear direction, support, and feedback.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team is led by its current manager/leader. These may include a lack of communication or transparency around expectations and goals, a perception that certain team members receive more support or attention than others, or a lack of recognition or reward for high performance.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team is led by its current manager/leader. These may include establishing clearer guidelines or expectations around leadership, providing additional training or support to the leader to enhance their leadership skills, or investing in new technologies or tools to enhance leadership and reporting.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team is led by its current manager/leader.
 
 Sample Answers
 --------------

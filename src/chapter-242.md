@@ -6,13 +6,10 @@ How to Answer
 
 Balancing individual needs and interests with those of the collective group is crucial for maintaining a cohesive and productive team environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team balances individual needs and interests with those of the collective group. Consider whether you feel that there is a culture of collaboration and compromise within the team, and whether team members are able to express their needs and interests without sacrificing the needs of the group.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team balances individual needs and interests with those of the collective group. These may include a lack of communication or collaboration around decision-making processes, a perception that certain team members have more influence over decisions than others, or a lack of clarity around expectations and goals.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team balances individual needs and interests with those of the collective group. These may include establishing clearer communication channels for sharing information about decision-making processes, providing additional training or support to team members to enhance their collaboration and compromise skills, or investing in new technologies or tools to enhance group decision-making.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team balances individual needs and interests with those of the collective group.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team balances individual needs and interests with those of the collective group. Consider whether you feel that there is a culture of collaboration and compromise within the team, and whether team members are able to express their needs and interests without sacrificing the needs of the group.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team balances individual needs and interests with those of the collective group. These may include a lack of communication or collaboration around decision-making processes, a perception that certain team members have more influence over decisions than others, or a lack of clarity around expectations and goals.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team balances individual needs and interests with those of the collective group. These may include establishing clearer communication channels for sharing information about decision-making processes, providing additional training or support to team members to enhance their collaboration and compromise skills, or investing in new technologies or tools to enhance group decision-making.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team balances individual needs and interests with those of the collective group.
 
 Sample Answers
 --------------

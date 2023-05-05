@@ -6,13 +6,10 @@ How to Answer
 
 Effective management of relationships with competitors and other external threats is important for any business. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages relationships with competitors or other external threats. Consider whether the team has a clear understanding of market trends and competitive dynamics, and whether there is a sense of responsiveness and adaptability in addressing external threats.
-
-2. Identify any challenges: Identify any challenges or issues with how effectively the team manages relationships with competitors or other external threats. These may include a lack of awareness or understanding of market trends and competitive dynamics, a perception that the team is not responsive enough to emerging threats, or a lack of coordination between team members in addressing these challenges.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages relationships with competitors or other external threats. These may include providing additional training or support to team members to enhance their skills in monitoring market trends and competitive dynamics, establishing clearer communication channels for sharing information about external threats, or investing in new technologies or tools to enhance tracking and analysis of competitor activity.
-
-4. Seek feedback: Seek feedback from other team members and external stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages relationships with competitors or other external threats.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages relationships with competitors or other external threats. Consider whether the team has a clear understanding of market trends and competitive dynamics, and whether there is a sense of responsiveness and adaptability in addressing external threats.
+2. **Identify any challenges**: Identify any challenges or issues with how effectively the team manages relationships with competitors or other external threats. These may include a lack of awareness or understanding of market trends and competitive dynamics, a perception that the team is not responsive enough to emerging threats, or a lack of coordination between team members in addressing these challenges.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages relationships with competitors or other external threats. These may include providing additional training or support to team members to enhance their skills in monitoring market trends and competitive dynamics, establishing clearer communication channels for sharing information about external threats, or investing in new technologies or tools to enhance tracking and analysis of competitor activity.
+4. **Seek feedback**: Seek feedback from other team members and external stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages relationships with competitors or other external threats.
 
 Sample Answers
 --------------

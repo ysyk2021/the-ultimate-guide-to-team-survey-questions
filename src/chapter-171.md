@@ -6,13 +6,10 @@ How to Answer
 
 Collaboration between different departments or teams is important for achieving overall organizational success. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your experience working with other departments or teams. Consider whether there have been any challenges or successes in collaborative efforts.
-
-2. Identify strengths and weaknesses: Identify the strengths and weaknesses of current collaborative efforts. Consider what is working well and what could be improved.
-
-3. Propose improvements: Based on your evaluation, propose improvements to current collaborative efforts. These may include establishing regular check-ins or meetings between departments, identifying common goals and objectives, or improving communication channels.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with current collaborative efforts.
+1. **Reflect on your experience**: Before answering, reflect on your experience working with other departments or teams. Consider whether there have been any challenges or successes in collaborative efforts.
+2. **Identify strengths and weaknesses**: Identify the strengths and weaknesses of current collaborative efforts. Consider what is working well and what could be improved.
+3. **Propose improvements**: Based on your evaluation, propose improvements to current collaborative efforts. These may include establishing regular check-ins or meetings between departments, identifying common goals and objectives, or improving communication channels.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with current collaborative efforts.
 
 Sample Answers
 --------------

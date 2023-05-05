@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how frequently team members feel recognized or appreciated for their contributions is important for boosting morale and fostering a positive work environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how frequently you feel recognized or appreciated for your contributions to the team. Consider whether you feel that your work is valued, and whether your contributions are acknowledged in a meaningful way.
-
-2. Identify any challenges: Identify any challenges or issues with how frequently team members feel recognized or appreciated for their contributions. These may include a lack of feedback or recognition from managers or leaders, a perception that certain team members receive more recognition than others, or a lack of opportunities for team members to recognize each other's contributions.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how frequently team members feel recognized or appreciated for their contributions. These may include establishing more formal processes for providing feedback and recognition, creating opportunities for team members to recognize each other's contributions, or investing in new technologies or tools to enhance collaboration and communication among team members.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how frequently team members feel recognized or appreciated for their contributions.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how frequently you feel recognized or appreciated for your contributions to the team. Consider whether you feel that your work is valued, and whether your contributions are acknowledged in a meaningful way.
+2. **Identify any challenges**: Identify any challenges or issues with how frequently team members feel recognized or appreciated for their contributions. These may include a lack of feedback or recognition from managers or leaders, a perception that certain team members receive more recognition than others, or a lack of opportunities for team members to recognize each other's contributions.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how frequently team members feel recognized or appreciated for their contributions. These may include establishing more formal processes for providing feedback and recognition, creating opportunities for team members to recognize each other's contributions, or investing in new technologies or tools to enhance collaboration and communication among team members.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how frequently team members feel recognized or appreciated for their contributions.
 
 Sample Answers
 --------------

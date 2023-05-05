@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how well the team fosters a culture of continuous improvement and growth is important for creating a dynamic and innovative work environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how the team fosters a culture of continuous improvement and growth. Consider whether you feel that there is an emphasis on learning and development, and whether team members are encouraged to take risks and experiment.
-
-2. Identify any challenges: Identify any challenges or issues with how the team fosters a culture of continuous improvement and growth. These may include a lack of support or resources for learning and development, a perception that mistakes or failures are punished rather than used as opportunities for growth, or a lack of opportunities for innovation or experimentation.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team fosters a culture of continuous improvement and growth. These may include establishing clearer guidelines or expectations around learning and development, encouraging risk-taking and experimentation through incentives or recognition programs, or investing in new technologies or tools to promote innovation and collaboration.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team fosters a culture of continuous improvement and growth.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how the team fosters a culture of continuous improvement and growth. Consider whether you feel that there is an emphasis on learning and development, and whether team members are encouraged to take risks and experiment.
+2. **Identify any challenges**: Identify any challenges or issues with how the team fosters a culture of continuous improvement and growth. These may include a lack of support or resources for learning and development, a perception that mistakes or failures are punished rather than used as opportunities for growth, or a lack of opportunities for innovation or experimentation.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team fosters a culture of continuous improvement and growth. These may include establishing clearer guidelines or expectations around learning and development, encouraging risk-taking and experimentation through incentives or recognition programs, or investing in new technologies or tools to promote innovation and collaboration.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team fosters a culture of continuous improvement and growth.
 
 Sample Answers
 --------------

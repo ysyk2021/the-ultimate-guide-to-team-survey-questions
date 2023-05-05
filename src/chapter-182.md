@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how well the team fosters a culture of accountability and ownership is important for promoting a sense of responsibility and commitment among team members. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team fosters a culture of accountability and ownership among its members. Consider whether you feel that there is a clear sense of responsibility and commitment among team members, and whether team members take ownership of their work.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team fosters a culture of accountability and ownership. These may include a lack of communication or transparency around expectations and goals, a perception that certain team members are not held accountable for their work, or a lack of recognition or reward for taking ownership and responsibility.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team fosters a culture of accountability and ownership. These may include establishing clearer guidelines or expectations around accountability and ownership, providing additional training or support to team members to enhance their accountability and ownership skills, or investing in new technologies or tools to enhance accountability and reporting.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team fosters a culture of accountability and ownership.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team fosters a culture of accountability and ownership among its members. Consider whether you feel that there is a clear sense of responsibility and commitment among team members, and whether team members take ownership of their work.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team fosters a culture of accountability and ownership. These may include a lack of communication or transparency around expectations and goals, a perception that certain team members are not held accountable for their work, or a lack of recognition or reward for taking ownership and responsibility.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team fosters a culture of accountability and ownership. These may include establishing clearer guidelines or expectations around accountability and ownership, providing additional training or support to team members to enhance their accountability and ownership skills, or investing in new technologies or tools to enhance accountability and reporting.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team fosters a culture of accountability and ownership.
 
 Sample Answers
 --------------

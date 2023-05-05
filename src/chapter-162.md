@@ -6,13 +6,10 @@ How to Answer
 
 Having access to adequate administrative support and resources is critical for promoting productivity and achieving team goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of administrative support and resources available. Consider whether you have access to the tools and resources necessary to complete your work effectively, whether administrative processes are streamlined and efficient, and whether there are any obstacles to effective use of administrative support and resources.
-
-2. Identify any challenges: Identify any challenges or issues with accessing administrative support and resources within the team. These may include a lack of access to necessary tools and resources, inefficient administrative processes, or inadequate training or support for using administrative support and resources effectively.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with accessing administrative support and resources within the team. These may include providing additional tools and resources, streamlining administrative processes, providing training or support to help team members use administrative support and resources effectively, or adjusting team structures to better support effective use of administrative support and resources.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with accessing administrative support and resources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of administrative support and resources available. Consider whether you have access to the tools and resources necessary to complete your work effectively, whether administrative processes are streamlined and efficient, and whether there are any obstacles to effective use of administrative support and resources.
+2. **Identify any challenges**: Identify any challenges or issues with accessing administrative support and resources within the team. These may include a lack of access to necessary tools and resources, inefficient administrative processes, or inadequate training or support for using administrative support and resources effectively.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with accessing administrative support and resources within the team. These may include providing additional tools and resources, streamlining administrative processes, providing training or support to help team members use administrative support and resources effectively, or adjusting team structures to better support effective use of administrative support and resources.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with accessing administrative support and resources.
 
 Sample Answers
 --------------

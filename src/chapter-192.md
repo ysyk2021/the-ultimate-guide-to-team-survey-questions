@@ -6,13 +6,10 @@ How to Answer
 
 Encouraging ongoing learning and innovation is important for keeping team members engaged, motivated, and aligned with industry trends. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team encourages and supports ongoing learning and innovation in the industry. Consider whether there are opportunities for growth and development related to industry trends, and whether team members feel supported in pursuing these opportunities.
-
-2. Identify any challenges: Identify any challenges or issues with encouraging and supporting ongoing learning and innovation in the industry among team members. These may include a lack of resources or budget allocated to training and development related to industry trends, a perception that certain team members receive more opportunities for growth than others, or misunderstandings or miscommunications around the importance of learning and innovation in the industry.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with encouraging and supporting ongoing learning and innovation in the industry among team members. These may include investing in additional resources or budget to support training and development initiatives related to industry trends, adjusting team structures to better promote and support learning and innovation, or establishing clearer guidelines or expectations around learning and innovation in the industry.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with encouraging and supporting ongoing learning and innovation in the industry among team members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team encourages and supports ongoing learning and innovation in the industry. Consider whether there are opportunities for growth and development related to industry trends, and whether team members feel supported in pursuing these opportunities.
+2. **Identify any challenges**: Identify any challenges or issues with encouraging and supporting ongoing learning and innovation in the industry among team members. These may include a lack of resources or budget allocated to training and development related to industry trends, a perception that certain team members receive more opportunities for growth than others, or misunderstandings or miscommunications around the importance of learning and innovation in the industry.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with encouraging and supporting ongoing learning and innovation in the industry among team members. These may include investing in additional resources or budget to support training and development initiatives related to industry trends, adjusting team structures to better promote and support learning and innovation, or establishing clearer guidelines or expectations around learning and innovation in the industry.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with encouraging and supporting ongoing learning and innovation in the industry among team members.
 
 Sample Answers
 --------------

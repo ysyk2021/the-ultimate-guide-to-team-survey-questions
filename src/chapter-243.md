@@ -6,13 +6,10 @@ How to Answer
 
 Effective management of relationships with regulatory bodies or industry associations is critical for ensuring compliance and promoting a positive reputation. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages relationships with regulatory bodies or industry associations. Consider whether there is clear communication and collaboration with these entities, whether there is a culture of compliance and ethics, and whether the team has been successful in achieving its goals related to regulatory or industry requirements.
-
-2. Identify any challenges: Identify any challenges or issues with managing relationships with regulatory bodies or industry associations. These may include a perception that the team is not sufficiently engaged with or responsive to these entities, a lack of clarity around policies or procedures related to compliance, or difficulty in achieving goals related to regulatory or industry requirements.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with regulatory bodies or industry associations. These may include providing training or support to help team members understand and comply with regulatory or industry requirements, establishing clearer guidelines or policies around communication and collaboration with these entities, or adjusting team structures to better support compliance and ethics.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with regulatory bodies or industry associations.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages relationships with regulatory bodies or industry associations. Consider whether there is clear communication and collaboration with these entities, whether there is a culture of compliance and ethics, and whether the team has been successful in achieving its goals related to regulatory or industry requirements.
+2. **Identify any challenges**: Identify any challenges or issues with managing relationships with regulatory bodies or industry associations. These may include a perception that the team is not sufficiently engaged with or responsive to these entities, a lack of clarity around policies or procedures related to compliance, or difficulty in achieving goals related to regulatory or industry requirements.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with regulatory bodies or industry associations. These may include providing training or support to help team members understand and comply with regulatory or industry requirements, establishing clearer guidelines or policies around communication and collaboration with these entities, or adjusting team structures to better support compliance and ethics.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with regulatory bodies or industry associations.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 Addressing and resolving issues related to conflicts of interest or ethical dilemmas is important for maintaining trust and integrity within a team. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team addresses and resolves issues related to conflicts of interest or ethical dilemmas. Consider whether there is a clear process for identifying and addressing these issues, and whether team members feel safe to report any concerns.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team addresses and resolves issues related to conflicts of interest or ethical dilemmas. These may include a lack of clarity or alignment around ethical standards and expectations, a perception that certain team members receive preferential treatment, or a fear of retaliation for reporting concerns.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with addressing and resolving issues related to conflicts of interest or ethical dilemmas. These may include establishing clearer communication channels for reporting concerns, providing additional training or support to team members to enhance their skills in ethical decision-making, or investing in team-building activities to strengthen trust and collaboration among team members.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with addressing and resolving issues related to conflicts of interest or ethical dilemmas.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team addresses and resolves issues related to conflicts of interest or ethical dilemmas. Consider whether there is a clear process for identifying and addressing these issues, and whether team members feel safe to report any concerns.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team addresses and resolves issues related to conflicts of interest or ethical dilemmas. These may include a lack of clarity or alignment around ethical standards and expectations, a perception that certain team members receive preferential treatment, or a fear of retaliation for reporting concerns.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with addressing and resolving issues related to conflicts of interest or ethical dilemmas. These may include establishing clearer communication channels for reporting concerns, providing additional training or support to team members to enhance their skills in ethical decision-making, or investing in team-building activities to strengthen trust and collaboration among team members.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with addressing and resolving issues related to conflicts of interest or ethical dilemmas.
 
 Sample Answers
 --------------

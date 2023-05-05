@@ -6,13 +6,10 @@ How to Answer
 
 Accountability is important for ensuring that team members take ownership of their work and contribute to achieving organizational goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of accountability among team members. Consider whether team members take responsibility for their work and contribute to achieving organizational goals.
-
-2. Identify any challenges: Identify any challenges or issues with the level of accountability among team members. These may include a lack of clarity around individual roles and responsibilities, competing priorities that can lead to missed deadlines or incomplete work, or a perception that certain team members are not pulling their weight.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of accountability among team members. These may include establishing clearer guidelines or expectations around individual roles and responsibilities, investing in training or development opportunities to enhance skills and competencies, or adjusting team structures to better align with organizational priorities.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of accountability among team members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of accountability among team members. Consider whether team members take responsibility for their work and contribute to achieving organizational goals.
+2. **Identify any challenges**: Identify any challenges or issues with the level of accountability among team members. These may include a lack of clarity around individual roles and responsibilities, competing priorities that can lead to missed deadlines or incomplete work, or a perception that certain team members are not pulling their weight.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of accountability among team members. These may include establishing clearer guidelines or expectations around individual roles and responsibilities, investing in training or development opportunities to enhance skills and competencies, or adjusting team structures to better align with organizational priorities.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of accountability among team members.
 
 Sample Answers
 --------------

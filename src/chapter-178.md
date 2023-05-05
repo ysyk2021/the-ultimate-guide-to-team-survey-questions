@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how well the team ensures that all members are aligned with its goals and objectives is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team ensures that all members are aligned with its goals and objectives. Consider whether you feel that everyone on the team understands and is working towards the same goals.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team ensures that all members are aligned with its goals and objectives. These may include a lack of clear communication or transparency around goals and objectives, inadequate training or support for team members to understand these goals and objectives, or a perception that certain team members are not fully committed to achieving these goals and objectives.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team ensures that all members are aligned with its goals and objectives. These may include establishing clearer communication channels and protocols for sharing goals and objectives with team members, providing additional training or support to help team members understand and work towards these goals and objectives, or investing in new technologies or tools to enhance collaboration and alignment.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team ensures that all members are aligned with its goals and objectives.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team ensures that all members are aligned with its goals and objectives. Consider whether you feel that everyone on the team understands and is working towards the same goals.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team ensures that all members are aligned with its goals and objectives. These may include a lack of clear communication or transparency around goals and objectives, inadequate training or support for team members to understand these goals and objectives, or a perception that certain team members are not fully committed to achieving these goals and objectives.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team ensures that all members are aligned with its goals and objectives. These may include establishing clearer communication channels and protocols for sharing goals and objectives with team members, providing additional training or support to help team members understand and work towards these goals and objectives, or investing in new technologies or tools to enhance collaboration and alignment.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team ensures that all members are aligned with its goals and objectives.
 
 Sample Answers
 --------------

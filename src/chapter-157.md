@@ -6,13 +6,10 @@ How to Answer
 
 Addressing and resolving issues related to work overload or burnout is critical for promoting the well-being and productivity of team members. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team addresses and resolves issues related to work overload or burnout. Consider whether there is a culture of open communication around these issues, whether team members feel supported in managing their workload, and whether there are any obstacles to effective resolution of these issues.
-
-2. Identify any challenges: Identify any challenges or issues with addressing and resolving work overload or burnout within the team. These may include a lack of support or resources for managing workload, ineffective communication around these issues, or a perception that these issues are not taken seriously.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with addressing and resolving work overload or burnout within the team. These may include providing training or support to help team members manage their workload effectively, establishing clearer guidelines or policies around workload management and burnout prevention, or adjusting team structures to better support effective resolution of these issues.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with addressing and resolving work overload or burnout.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team addresses and resolves issues related to work overload or burnout. Consider whether there is a culture of open communication around these issues, whether team members feel supported in managing their workload, and whether there are any obstacles to effective resolution of these issues.
+2. **Identify any challenges**: Identify any challenges or issues with addressing and resolving work overload or burnout within the team. These may include a lack of support or resources for managing workload, ineffective communication around these issues, or a perception that these issues are not taken seriously.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with addressing and resolving work overload or burnout within the team. These may include providing training or support to help team members manage their workload effectively, establishing clearer guidelines or policies around workload management and burnout prevention, or adjusting team structures to better support effective resolution of these issues.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with addressing and resolving work overload or burnout.
 
 Sample Answers
 --------------

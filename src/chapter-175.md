@@ -6,13 +6,10 @@ How to Answer
 
 Effective mentorship and guidance is crucial for the growth and development of team members. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of mentorship and guidance provided to team members. Consider whether you feel that there is a culture of mentorship and support within the team, and whether team members have access to the resources and support they need to grow and develop.
-
-2. Identify any challenges: Identify any challenges or issues with the level of mentorship and guidance provided to team members. These may include a lack of communication or collaboration around mentoring and support, a perception that certain team members receive more mentorship or support than others, or a lack of resources or support for professional development.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of mentorship and guidance provided to team members. These may include establishing clearer communication channels for sharing information about mentoring and support opportunities, providing additional training or support to team members to enhance their skills and knowledge, or investing in new technologies or tools to enhance mentorship and guidance.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of mentorship and guidance provided to team members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of mentorship and guidance provided to team members. Consider whether you feel that there is a culture of mentorship and support within the team, and whether team members have access to the resources and support they need to grow and develop.
+2. **Identify any challenges**: Identify any challenges or issues with the level of mentorship and guidance provided to team members. These may include a lack of communication or collaboration around mentoring and support, a perception that certain team members receive more mentorship or support than others, or a lack of resources or support for professional development.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of mentorship and guidance provided to team members. These may include establishing clearer communication channels for sharing information about mentoring and support opportunities, providing additional training or support to team members to enhance their skills and knowledge, or investing in new technologies or tools to enhance mentorship and guidance.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of mentorship and guidance provided to team members.
 
 Sample Answers
 --------------

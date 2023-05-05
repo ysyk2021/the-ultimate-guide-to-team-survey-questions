@@ -6,13 +6,10 @@ How to Answer
 
 Balancing short-term needs with long-term sustainability is important for achieving organizational goals while also ensuring long-term success. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team balances its focus on short-term versus long-term sustainability. Consider whether there is a clear understanding of the importance of both short-term and long-term goals, and whether the team is proactive in addressing both.
-
-2. Identify any challenges: Identify any challenges or issues with balancing short-term needs with long-term sustainability. These may include a lack of resources or personnel dedicated to addressing long-term sustainability, competing priorities that can lead to a focus on short-term gains at the expense of long-term success, or misunderstandings or miscommunications around the importance of balancing short-term and long-term goals.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with balancing short-term needs with long-term sustainability. These may include establishing clearer guidelines or expectations around the importance of balancing short-term and long-term goals, investing in additional resources or personnel to better support long-term sustainability efforts, or adjusting team structures to better align with organizational priorities.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with balancing short-term needs with long-term sustainability.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team balances its focus on short-term versus long-term sustainability. Consider whether there is a clear understanding of the importance of both short-term and long-term goals, and whether the team is proactive in addressing both.
+2. **Identify any challenges**: Identify any challenges or issues with balancing short-term needs with long-term sustainability. These may include a lack of resources or personnel dedicated to addressing long-term sustainability, competing priorities that can lead to a focus on short-term gains at the expense of long-term success, or misunderstandings or miscommunications around the importance of balancing short-term and long-term goals.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with balancing short-term needs with long-term sustainability. These may include establishing clearer guidelines or expectations around the importance of balancing short-term and long-term goals, investing in additional resources or personnel to better support long-term sustainability efforts, or adjusting team structures to better align with organizational priorities.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with balancing short-term needs with long-term sustainability.
 
 Sample Answers
 --------------

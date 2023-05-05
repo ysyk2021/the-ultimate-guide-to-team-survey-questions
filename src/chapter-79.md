@@ -6,13 +6,10 @@ How to Answer
 
 Understanding what changes team members would recommend to improve the team's productivity is important for identifying areas for improvement and implementing effective solutions. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the team's productivity. Consider whether there are any processes or practices that could be improved to enhance efficiency and effectiveness.
-
-2. Identify any challenges: Identify any challenges or issues with the team's productivity. These may include a lack of clear goals or objectives, poor communication or collaboration, inefficient workflows or processes, or a lack of resources or support.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the team's productivity. These may include establishing clearer goals or objectives, improving communication and collaboration through new technologies or tools, streamlining workflows or processes, or investing in new resources or support.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the team's productivity.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the team's productivity. Consider whether there are any processes or practices that could be improved to enhance efficiency and effectiveness.
+2. **Identify any challenges**: Identify any challenges or issues with the team's productivity. These may include a lack of clear goals or objectives, poor communication or collaboration, inefficient workflows or processes, or a lack of resources or support.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the team's productivity. These may include establishing clearer goals or objectives, improving communication and collaboration through new technologies or tools, streamlining workflows or processes, or investing in new resources or support.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the team's productivity.
 
 Sample Answers
 --------------

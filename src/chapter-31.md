@@ -6,15 +6,11 @@ How to Answer
 
 Understanding the impact of your team on customers is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience working with customers and your observations of how they interact with the team. Consider whether you feel that the team is meeting customer needs effectively.
-
-2. Consider customer feedback: Consider any feedback that you have received from customers. Think about what they have said regarding their experience with the team and whether there are any recurring themes or issues.
-
-3. Identify strengths and weaknesses: Identify the strengths and weaknesses of the team's impact on customers. Consider what is working well and what could be improved.
-
-4. Propose improvements: Based on your evaluation, propose improvements to enhance the team's impact on customers. These may include improving communication and transparency, enhancing the quality of products or services, or providing additional support or resources to customers.
-
-5. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the team's impact on customers.
+1. **Reflect on your experience**: Before answering, reflect on your own experience working with customers and your observations of how they interact with the team. Consider whether you feel that the team is meeting customer needs effectively.
+2. **Consider customer feedback**: Consider any feedback that you have received from customers. Think about what they have said regarding their experience with the team and whether there are any recurring themes or issues.
+3. **Identify strengths and weaknesses**: Identify the strengths and weaknesses of the team's impact on customers. Consider what is working well and what could be improved.
+4. **Propose improvements**: Based on your evaluation, propose improvements to enhance the team's impact on customers. These may include improving communication and transparency, enhancing the quality of products or services, or providing additional support or resources to customers.
+5. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the team's impact on customers.
 
 Sample Answers
 --------------

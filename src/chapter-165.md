@@ -6,13 +6,10 @@ How to Answer
 
 Fostering a culture of creativity and innovation can enhance a team's ability to generate new ideas and solutions to problems. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team fosters a culture of creativity and innovation among its members. Consider whether you feel that team members are encouraged to share their ideas and opinions, and whether there is a sense of openness and willingness to try new things.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team fosters a culture of creativity and innovation among its members. These may include a lack of opportunities for brainstorming and idea-sharing, a perception that certain team members have more influence over these processes than others, or a lack of support or recognition for innovative ideas.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team fosters a culture of creativity and innovation among its members. These may include establishing regular brainstorming sessions or workshops for idea-sharing, providing additional training or support to team members to enhance their creativity and innovation skills, or investing in new technologies or tools to enhance collaboration and idea-sharing.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team fosters a culture of creativity and innovation among its members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team fosters a culture of creativity and innovation among its members. Consider whether you feel that team members are encouraged to share their ideas and opinions, and whether there is a sense of openness and willingness to try new things.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team fosters a culture of creativity and innovation among its members. These may include a lack of opportunities for brainstorming and idea-sharing, a perception that certain team members have more influence over these processes than others, or a lack of support or recognition for innovative ideas.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team fosters a culture of creativity and innovation among its members. These may include establishing regular brainstorming sessions or workshops for idea-sharing, providing additional training or support to team members to enhance their creativity and innovation skills, or investing in new technologies or tools to enhance collaboration and idea-sharing.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team fosters a culture of creativity and innovation among its members.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 Supporting physical health and wellness is important for ensuring that team members stay healthy and productive. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of support and resources available for physical health and wellness. Consider whether there are resources or programs in place to support physical health, such as healthy eating options or fitness programs, and whether these resources are easily accessible and effective.
-
-2. Identify any challenges: Identify any challenges or issues with the level of support and resources available for physical health and wellness. These may include a lack of resources or programming, limited accessibility to existing resources, or a perception that physical health and wellness are not prioritized by the organization.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of support and resources available for physical health and wellness. These may include investing in additional resources or programming, improving accessibility to existing resources, or increasing communication and awareness around the importance of physical health and wellness.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of support and resources available for physical health and wellness.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of support and resources available for physical health and wellness. Consider whether there are resources or programs in place to support physical health, such as healthy eating options or fitness programs, and whether these resources are easily accessible and effective.
+2. **Identify any challenges**: Identify any challenges or issues with the level of support and resources available for physical health and wellness. These may include a lack of resources or programming, limited accessibility to existing resources, or a perception that physical health and wellness are not prioritized by the organization.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of support and resources available for physical health and wellness. These may include investing in additional resources or programming, improving accessibility to existing resources, or increasing communication and awareness around the importance of physical health and wellness.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of support and resources available for physical health and wellness.
 
 Sample Answers
 --------------

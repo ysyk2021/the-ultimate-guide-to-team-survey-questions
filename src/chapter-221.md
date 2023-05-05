@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how satisfied team members are with the level of guidance and mentorship provided by senior leaders is important for fostering professional development and job satisfaction. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of guidance and mentorship provided by senior leaders. Consider whether you feel that senior leaders provide adequate support and guidance for professional development, and whether there is a clear process for mentorship.
-
-2. Identify any challenges: Identify any challenges or issues with the level of guidance and mentorship provided by senior leaders. These may include a lack of communication or transparency around mentorship opportunities, a perception that certain team members receive more guidance and mentorship than others, or a lack of resources or support for effective mentorship.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of guidance and mentorship provided by senior leaders. These may include establishing clearer guidelines or expectations around mentorship, providing additional training or support to senior leaders to enhance their mentorship skills, or investing in new technologies or tools to enhance mentorship and reporting.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of guidance and mentorship provided by senior leaders.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of guidance and mentorship provided by senior leaders. Consider whether you feel that senior leaders provide adequate support and guidance for professional development, and whether there is a clear process for mentorship.
+2. **Identify any challenges**: Identify any challenges or issues with the level of guidance and mentorship provided by senior leaders. These may include a lack of communication or transparency around mentorship opportunities, a perception that certain team members receive more guidance and mentorship than others, or a lack of resources or support for effective mentorship.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of guidance and mentorship provided by senior leaders. These may include establishing clearer guidelines or expectations around mentorship, providing additional training or support to senior leaders to enhance their mentorship skills, or investing in new technologies or tools to enhance mentorship and reporting.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of guidance and mentorship provided by senior leaders.
 
 Sample Answers
 --------------

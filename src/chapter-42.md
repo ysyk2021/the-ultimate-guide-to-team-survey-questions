@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how well the team manages and prioritizes its projects is important for ensuring that work is completed efficiently and effectively. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how the team manages and prioritizes its projects. Consider whether you feel that projects are being completed on time and within budget, and whether there are any areas for improvement.
-
-2. Identify any challenges: Identify any challenges or issues with how the team manages and prioritizes its projects. These may include a lack of clear project goals or objectives, poor communication or collaboration, inefficient workflows or processes, or a lack of resources or support.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team manages and prioritizes its projects. These may include establishing clearer project goals or objectives, improving communication and collaboration through new technologies or tools, streamlining workflows or processes, or investing in new resources or support.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team manages and prioritizes its projects.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how the team manages and prioritizes its projects. Consider whether you feel that projects are being completed on time and within budget, and whether there are any areas for improvement.
+2. **Identify any challenges**: Identify any challenges or issues with how the team manages and prioritizes its projects. These may include a lack of clear project goals or objectives, poor communication or collaboration, inefficient workflows or processes, or a lack of resources or support.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team manages and prioritizes its projects. These may include establishing clearer project goals or objectives, improving communication and collaboration through new technologies or tools, streamlining workflows or processes, or investing in new resources or support.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team manages and prioritizes its projects.
 
 Sample Answers
 --------------

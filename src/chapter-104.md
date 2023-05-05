@@ -6,13 +6,10 @@ How to Answer
 
 Effective stress and pressure management is critical for promoting the well-being and productivity of team members. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages stress and pressure. Consider whether there is a culture of support and understanding around these issues, whether team members feel comfortable discussing their stress levels and seeking help when needed, and whether there are any obstacles to effective stress and pressure management.
-
-2. Identify any challenges: Identify any challenges or issues with managing stress and pressure within the team. These may include a lack of support or resources for managing stress, ineffective communication around these issues, or a perception that stress and pressure are not taken seriously.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with managing stress and pressure within the team. These may include providing training or support to help team members manage their stress levels effectively, establishing clearer guidelines or policies around stress and pressure management, or adjusting team structures to better support effective stress and pressure management.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing stress and pressure.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages stress and pressure. Consider whether there is a culture of support and understanding around these issues, whether team members feel comfortable discussing their stress levels and seeking help when needed, and whether there are any obstacles to effective stress and pressure management.
+2. **Identify any challenges**: Identify any challenges or issues with managing stress and pressure within the team. These may include a lack of support or resources for managing stress, ineffective communication around these issues, or a perception that stress and pressure are not taken seriously.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with managing stress and pressure within the team. These may include providing training or support to help team members manage their stress levels effectively, establishing clearer guidelines or policies around stress and pressure management, or adjusting team structures to better support effective stress and pressure management.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing stress and pressure.
 
 Sample Answers
 --------------

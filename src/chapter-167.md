@@ -6,13 +6,10 @@ How to Answer
 
 Identifying and addressing potential obstacles to achieving goals is key to success. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team identifies and addresses potential obstacles to achieving its goals. Consider whether you feel that the team is proactive in identifying potential obstacles, and whether there is a culture of problem-solving and continuous improvement.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team identifies and addresses potential obstacles to achieving its goals. These may include a lack of communication or collaboration around identifying potential obstacles, a perception that certain team members are resistant to change or new ideas, or a lack of resources or support for addressing potential obstacles.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team identifies and addresses potential obstacles to achieving its goals. These may include establishing clearer communication channels for sharing information about potential obstacles, providing additional training or support to team members to enhance their problem-solving skills, or investing in new technologies or tools to enhance obstacle identification and resolution.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team identifies and addresses potential obstacles to achieving its goals.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team identifies and addresses potential obstacles to achieving its goals. Consider whether you feel that the team is proactive in identifying potential obstacles, and whether there is a culture of problem-solving and continuous improvement.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team identifies and addresses potential obstacles to achieving its goals. These may include a lack of communication or collaboration around identifying potential obstacles, a perception that certain team members are resistant to change or new ideas, or a lack of resources or support for addressing potential obstacles.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team identifies and addresses potential obstacles to achieving its goals. These may include establishing clearer communication channels for sharing information about potential obstacles, providing additional training or support to team members to enhance their problem-solving skills, or investing in new technologies or tools to enhance obstacle identification and resolution.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team identifies and addresses potential obstacles to achieving its goals.
 
 Sample Answers
 --------------

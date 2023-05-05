@@ -6,13 +6,10 @@ How to Answer
 
 Effective management and prioritization of deadlines and deliverables is critical for achieving team goals and promoting productivity. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team manages and prioritizes its deadlines and deliverables. Consider whether there is a clear understanding of project timelines and milestones, whether team members are able to prioritize tasks effectively, and whether there are any obstacles to effective deadline and deliverable management.
-
-2. Identify any challenges: Identify any challenges or issues with managing deadlines and deliverables within the team. These may include a lack of clarity around project timelines and milestones, difficulty in prioritizing tasks effectively, or challenges in managing deadlines due to competing demands or other obstacles.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with managing deadlines and deliverables within the team. These may include providing training or support to help team members prioritize tasks effectively, establishing clearer guidelines or policies around deadline and deliverable management, or adjusting team structures to better support effective deadline and deliverable management.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing deadlines and deliverables.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team manages and prioritizes its deadlines and deliverables. Consider whether there is a clear understanding of project timelines and milestones, whether team members are able to prioritize tasks effectively, and whether there are any obstacles to effective deadline and deliverable management.
+2. **Identify any challenges**: Identify any challenges or issues with managing deadlines and deliverables within the team. These may include a lack of clarity around project timelines and milestones, difficulty in prioritizing tasks effectively, or challenges in managing deadlines due to competing demands or other obstacles.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with managing deadlines and deliverables within the team. These may include providing training or support to help team members prioritize tasks effectively, establishing clearer guidelines or policies around deadline and deliverable management, or adjusting team structures to better support effective deadline and deliverable management.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing deadlines and deliverables.
 
 Sample Answers
 --------------

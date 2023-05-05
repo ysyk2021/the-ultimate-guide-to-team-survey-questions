@@ -6,13 +6,10 @@ How to Answer
 
 Regular check-ins and evaluations are important for tracking progress, identifying areas for improvement, and ensuring that the team remains aligned with organizational goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how often the team conducts regular check-ins and evaluations of its progress and performance. Consider whether these evaluations are conducted consistently and effectively, and whether they contribute to meaningful improvements in team performance.
-
-2. Identify any challenges: Identify any challenges or issues with conducting regular check-ins and evaluations of progress and performance. These may include a lack of clear guidelines or expectations around evaluations, competing priorities that can lead to missed opportunities for evaluation, or misunderstandings or miscommunications around the importance of these evaluations.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with conducting regular check-ins and evaluations of progress and performance. These may include establishing clearer guidelines or expectations around evaluations, investing in training or development opportunities to enhance skills and competencies related to evaluation, or adjusting team structures to better align with organizational priorities.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with conducting regular check-ins and evaluations of progress and performance.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how often the team conducts regular check-ins and evaluations of its progress and performance. Consider whether these evaluations are conducted consistently and effectively, and whether they contribute to meaningful improvements in team performance.
+2. **Identify any challenges**: Identify any challenges or issues with conducting regular check-ins and evaluations of progress and performance. These may include a lack of clear guidelines or expectations around evaluations, competing priorities that can lead to missed opportunities for evaluation, or misunderstandings or miscommunications around the importance of these evaluations.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with conducting regular check-ins and evaluations of progress and performance. These may include establishing clearer guidelines or expectations around evaluations, investing in training or development opportunities to enhance skills and competencies related to evaluation, or adjusting team structures to better align with organizational priorities.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with conducting regular check-ins and evaluations of progress and performance.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 Having clear and transparent goals and objectives is essential for a team's success. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of transparency and clarity in the team's goals and objectives. Consider whether you feel that the team has a clear understanding of its goals and objectives, and whether there is open communication around progress towards these goals.
-
-2. Identify any challenges: Identify any challenges or issues with the level of transparency and clarity in the team's goals and objectives. These may include a lack of communication or collaboration around goal-setting processes, a perception that certain team members have more influence over these goals and objectives than others, or a lack of clarity around expectations and timelines for achieving these goals.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of transparency and clarity in the team's goals and objectives. These may include establishing clearer communication channels for sharing information about goal-setting processes, providing additional training or support to team members to enhance their goal-setting skills, or investing in new technologies or tools to enhance communication and collaboration around goals and objectives.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of transparency and clarity in the team's goals and objectives.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of transparency and clarity in the team's goals and objectives. Consider whether you feel that the team has a clear understanding of its goals and objectives, and whether there is open communication around progress towards these goals.
+2. **Identify any challenges**: Identify any challenges or issues with the level of transparency and clarity in the team's goals and objectives. These may include a lack of communication or collaboration around goal-setting processes, a perception that certain team members have more influence over these goals and objectives than others, or a lack of clarity around expectations and timelines for achieving these goals.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of transparency and clarity in the team's goals and objectives. These may include establishing clearer communication channels for sharing information about goal-setting processes, providing additional training or support to team members to enhance their goal-setting skills, or investing in new technologies or tools to enhance communication and collaboration around goals and objectives.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of transparency and clarity in the team's goals and objectives.
 
 Sample Answers
 --------------

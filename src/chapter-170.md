@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how the team handles unexpected crises or emergencies is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how the team handles unexpected crises or emergencies. Consider whether you feel that the team responds quickly and effectively to address these situations.
-
-2. Identify any challenges: Identify any challenges or issues with how the team handles unexpected crises or emergencies. These may include a lack of clear protocols or procedures for addressing crises, inadequate communication or transparency during crises, or a perception that certain team members are better equipped to handle crises than others.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team handles unexpected crises or emergencies. These may include establishing clearer protocols or procedures for addressing crises, providing additional training or support to managers and team members to help them respond effectively to crises, or investing in new technologies or tools to enhance communication and collaboration during crises.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team handles unexpected crises or emergencies.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how the team handles unexpected crises or emergencies. Consider whether you feel that the team responds quickly and effectively to address these situations.
+2. **Identify any challenges**: Identify any challenges or issues with how the team handles unexpected crises or emergencies. These may include a lack of clear protocols or procedures for addressing crises, inadequate communication or transparency during crises, or a perception that certain team members are better equipped to handle crises than others.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team handles unexpected crises or emergencies. These may include establishing clearer protocols or procedures for addressing crises, providing additional training or support to managers and team members to help them respond effectively to crises, or investing in new technologies or tools to enhance communication and collaboration during crises.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team handles unexpected crises or emergencies.
 
 Sample Answers
 --------------

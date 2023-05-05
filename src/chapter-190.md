@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how satisfied team members are with the level of support and guidance provided by their manager or leader is important for evaluating overall job satisfaction and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of support and guidance provided by your manager or leader. Consider whether you feel that your manager or leader provides clear direction, feedback, and support to help you succeed in your role.
-
-2. Identify any challenges: Identify any challenges or issues with the level of support and guidance provided by your manager or leader. These may include a lack of clear communication or feedback, a perception that certain team members receive more support or guidance than others, or a lack of opportunities for professional development or growth.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of support and guidance provided by your manager or leader. These may include establishing clearer communication channels and protocols for providing feedback and support, providing additional training or support to managers or leaders to help them better support and guide their team members, or investing in new technologies or tools to enhance collaboration and communication.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of support and guidance provided by their manager or leader.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of support and guidance provided by your manager or leader. Consider whether you feel that your manager or leader provides clear direction, feedback, and support to help you succeed in your role.
+2. **Identify any challenges**: Identify any challenges or issues with the level of support and guidance provided by your manager or leader. These may include a lack of clear communication or feedback, a perception that certain team members receive more support or guidance than others, or a lack of opportunities for professional development or growth.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of support and guidance provided by your manager or leader. These may include establishing clearer communication channels and protocols for providing feedback and support, providing additional training or support to managers or leaders to help them better support and guide their team members, or investing in new technologies or tools to enhance collaboration and communication.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of support and guidance provided by their manager or leader.
 
 Sample Answers
 --------------

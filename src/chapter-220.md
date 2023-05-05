@@ -6,13 +6,10 @@ How to Answer
 
 Managing relationships with media outlets and journalists is important for building a positive reputation and effectively communicating with the public. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages relationships with media outlets or journalists. Consider whether there is a clear understanding of the importance of these relationships, and whether team members feel comfortable interacting with media outlets and journalists.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team manages relationships with media outlets or journalists. These may include a lack of responsiveness to media requests, a perception that certain team members prioritize other tasks over media relations, or misunderstandings or miscommunications with media outlets or journalists.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with media outlets or journalists. These may include providing additional training or support to team members to enhance their skills in media relations, establishing clearer communication channels for sharing information with media outlets or journalists, or investing in tools or resources to improve responsiveness to media requests.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with media outlets or journalists.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages relationships with media outlets or journalists. Consider whether there is a clear understanding of the importance of these relationships, and whether team members feel comfortable interacting with media outlets and journalists.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team manages relationships with media outlets or journalists. These may include a lack of responsiveness to media requests, a perception that certain team members prioritize other tasks over media relations, or misunderstandings or miscommunications with media outlets or journalists.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with media outlets or journalists. These may include providing additional training or support to team members to enhance their skills in media relations, establishing clearer communication channels for sharing information with media outlets or journalists, or investing in tools or resources to improve responsiveness to media requests.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with media outlets or journalists.
 
 Sample Answers
 --------------

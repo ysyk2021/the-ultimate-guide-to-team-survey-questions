@@ -14,13 +14,9 @@ Sample Answers
 --------------
 
 1. **Improved Communication:** Ensure that communication is clear, transparent, and timely. Encourage open dialogue and active listening to promote understanding and respect.
-
 2. **Inclusive Practices:** Promote inclusive practices such as providing equal opportunities for growth and development, and ensuring diverse perspectives are considered and valued.
-
 3. **Recognition and Feedback:** Acknowledge and celebrate the achievements and contributions of team members through regular feedback and recognition programs.
-
 4. **Flexibility and Support:** Offer flexibility and support to help team members balance work and personal life responsibilities, and provide resources such as mental health support and wellness programs.
-
 5. **Training and Development:** Provide training and development opportunities to help team members grow and develop their skills and expertise, and encourage continuous learning.
 
 Remember, the purpose of answering this survey question is to provide feedback on how to better ensure that everyone on the team feels valued and respected. By promoting a positive and inclusive work environment, we can create a more engaged and successful team.

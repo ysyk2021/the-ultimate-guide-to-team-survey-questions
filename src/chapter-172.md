@@ -6,13 +6,10 @@ How to Answer
 
 Handling changes or shifts in company strategy or direction is important for ensuring that the team stays aligned and focused on achieving its goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team handles changes or shifts in company strategy or direction. Consider whether there is a clear understanding of the new direction, and whether team members feel supported and empowered to make necessary adjustments to their work.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team handles changes or shifts in company strategy or direction. These may include a lack of communication or transparency around changes, a perception that certain team members receive preferential treatment, or a resistance to change due to fear or uncertainty.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with handling changes or shifts in company strategy or direction. These may include providing additional training or support to team members to enhance their skills in adapting to change, establishing clearer communication channels for sharing information about changes, or investing in team-building activities to strengthen relationships and build trust.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with handling changes or shifts in company strategy or direction.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team handles changes or shifts in company strategy or direction. Consider whether there is a clear understanding of the new direction, and whether team members feel supported and empowered to make necessary adjustments to their work.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team handles changes or shifts in company strategy or direction. These may include a lack of communication or transparency around changes, a perception that certain team members receive preferential treatment, or a resistance to change due to fear or uncertainty.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with handling changes or shifts in company strategy or direction. These may include providing additional training or support to team members to enhance their skills in adapting to change, establishing clearer communication channels for sharing information about changes, or investing in team-building activities to strengthen relationships and build trust.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with handling changes or shifts in company strategy or direction.
 
 Sample Answers
 --------------

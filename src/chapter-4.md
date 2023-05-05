@@ -6,13 +6,10 @@ How to Answer
 
 Defining the team's culture is an important step in understanding how the team operates and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Consider your experience: Before answering, consider your experience working with the team. Think about the team's values, behaviors, and attitudes.
-
-2. Identify key characteristics: Identify the key characteristics of the team's culture. Consider what makes the team unique and what sets it apart from other teams.
-
-3. Provide examples: To support your answer, provide specific examples of how these characteristics are demonstrated in the team's day-to-day operations. This will help others understand what you mean when you describe the team's culture.
-
-4. Identify areas for improvement: Finally, identify areas where the team's culture could be improved. Consider what changes could be made to strengthen the team's culture and improve overall performance.
+1. **Consider your experience**: Before answering, consider your experience working with the team. Think about the team's values, behaviors, and attitudes.
+2. **Identify key characteristics**: Identify the key characteristics of the team's culture. Consider what makes the team unique and what sets it apart from other teams.
+3. **Provide examples**: To support your answer, provide specific examples of how these characteristics are demonstrated in the team's day-to-day operations. This will help others understand what you mean when you describe the team's culture.
+4. **Identify areas for improvement**: Finally, identify areas where the team's culture could be improved. Consider what changes could be made to strengthen the team's culture and improve overall performance.
 
 Sample Answers
 --------------

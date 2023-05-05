@@ -14,19 +14,12 @@ Sample Answers
 --------------
 
 1. **Clear goals:** A high-performing team has clear goals that are communicated to all team members. Everyone understands what they're working towards and why it's important.
-
 2. **Collaboration:** A high-performing team works collaboratively to achieve its goals. Members communicate effectively and support each other's efforts.
-
 3. **Accountability:** Each member of a high-performing team takes responsibility for their role in achieving the team's goals. They hold themselves and each other accountable for their actions.
-
 4. **Adaptability:** A high-performing team is able to adapt to changing circumstances and overcome obstacles. Members are flexible and open to new ideas.
-
 5. **Continuous learning:** A high-performing team is committed to continuous learning and improvement. Members actively seek out feedback and opportunities to develop their skills.
-
 6. **Trust:** A high-performing team is built on a foundation of trust. Members are honest and transparent with each other, and trust each other to fulfill their responsibilities.
-
 7. **Respect:** A high-performing team respects each other's contributions and perspectives. Members value diversity and work to create an inclusive environment.
-
 8. **Positive attitude:** A high-performing team maintains a positive attitude even in the face of challenges. Members are supportive and motivated to achieve their goals.
 
 Remember, the purpose of answering this survey question is to identify the characteristics that contribute to team success and work together as a team to develop those traits.

@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how the team addresses and resolves issues related to workplace culture or morale is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Consider your experience: Before answering, reflect on your own experience with workplace culture and morale within the team. Consider whether you feel that issues are addressed and resolved effectively.
-
-2. Identify any challenges: Identify any challenges or issues with how the team addresses and resolves issues related to workplace culture or morale. These may include a lack of communication or transparency, a perception that certain team members are favored over others, or a lack of action in response to concerns raised by team members.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team addresses and resolves issues related to workplace culture or morale. These may include establishing more frequent check-ins or surveys to identify concerns and opportunities for improvement, providing additional training or support to managers to help them address workplace culture and morale issues, or establishing more formal processes for addressing concerns and resolving conflicts.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team addresses and resolves issues related to workplace culture or morale.
+1. **Consider your experience**: Before answering, reflect on your own experience with workplace culture and morale within the team. Consider whether you feel that issues are addressed and resolved effectively.
+2. **Identify any challenges**: Identify any challenges or issues with how the team addresses and resolves issues related to workplace culture or morale. These may include a lack of communication or transparency, a perception that certain team members are favored over others, or a lack of action in response to concerns raised by team members.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team addresses and resolves issues related to workplace culture or morale. These may include establishing more frequent check-ins or surveys to identify concerns and opportunities for improvement, providing additional training or support to managers to help them address workplace culture and morale issues, or establishing more formal processes for addressing concerns and resolving conflicts.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team addresses and resolves issues related to workplace culture or morale.
 
 Sample Answers
 --------------

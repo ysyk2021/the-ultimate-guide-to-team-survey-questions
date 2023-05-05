@@ -6,13 +6,10 @@ How to Answer
 
 Understanding team members' satisfaction with their work-life balance is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with work-life balance within the team. Consider whether you feel that you have enough time outside of work to pursue personal interests and hobbies.
-
-2. Identify any challenges: Identify any challenges or issues with achieving a good work-life balance within the team. These may include long hours, unrealistic expectations around productivity, or a lack of support for flexible working arrangements.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with achieving a good work-life balance within the team. These may include establishing more realistic expectations around workload and productivity, providing additional support for flexible working arrangements, or investing in new technologies or tools to enhance efficiency and streamline workflows.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with achieving a good work-life balance within the team.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with work-life balance within the team. Consider whether you feel that you have enough time outside of work to pursue personal interests and hobbies.
+2. **Identify any challenges**: Identify any challenges or issues with achieving a good work-life balance within the team. These may include long hours, unrealistic expectations around productivity, or a lack of support for flexible working arrangements.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with achieving a good work-life balance within the team. These may include establishing more realistic expectations around workload and productivity, providing additional support for flexible working arrangements, or investing in new technologies or tools to enhance efficiency and streamline workflows.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with achieving a good work-life balance within the team.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 Encouraging and supporting work-life balance is important for promoting employee well-being and productivity. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team encourages and supports work-life balance among members. Consider whether there are opportunities for flexible working arrangements, such as remote work or flexible hours, and whether team members feel supported in maintaining a healthy work-life balance.
-
-2. Identify any challenges: Identify any challenges or issues with encouraging and supporting work-life balance among team members. These may include a lack of clear guidelines or policies around flexible working arrangements, a perception that certain team members are expected to work longer hours than others, or misunderstandings or miscommunications around the importance of work-life balance.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with encouraging and supporting work-life balance among team members. These may include establishing clearer guidelines or policies around flexible working arrangements, promoting a culture of healthy work-life balance, or adjusting team structures to better support flexible working arrangements.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with encouraging and supporting work-life balance among team members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team encourages and supports work-life balance among members. Consider whether there are opportunities for flexible working arrangements, such as remote work or flexible hours, and whether team members feel supported in maintaining a healthy work-life balance.
+2. **Identify any challenges**: Identify any challenges or issues with encouraging and supporting work-life balance among team members. These may include a lack of clear guidelines or policies around flexible working arrangements, a perception that certain team members are expected to work longer hours than others, or misunderstandings or miscommunications around the importance of work-life balance.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with encouraging and supporting work-life balance among team members. These may include establishing clearer guidelines or policies around flexible working arrangements, promoting a culture of healthy work-life balance, or adjusting team structures to better support flexible working arrangements.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with encouraging and supporting work-life balance among team members.
 
 Sample Answers
 --------------

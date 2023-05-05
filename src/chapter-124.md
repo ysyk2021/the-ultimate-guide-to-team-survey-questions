@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how the team prioritizes and allocates its customer service resources is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Consider your experience: Before answering, consider your own experience with customer service and how effectively you feel that the team prioritizes and allocates its resources.
-
-2. Identify any challenges: Identify any challenges or issues with how the team prioritizes and allocates its customer service resources. These may include inadequate staffing levels, ineffective communication or coordination, or competing priorities within the organization.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team prioritizes and allocates its customer service resources. These may include hiring additional staff, improving communication and coordination between teams, establishing clearer priorities and goals, or investing in new technologies or tools to enhance customer service.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the team's approach to prioritizing and allocating customer service resources.
+1. **Consider your experience**: Before answering, consider your own experience with customer service and how effectively you feel that the team prioritizes and allocates its resources.
+2. **Identify any challenges**: Identify any challenges or issues with how the team prioritizes and allocates its customer service resources. These may include inadequate staffing levels, ineffective communication or coordination, or competing priorities within the organization.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team prioritizes and allocates its customer service resources. These may include hiring additional staff, improving communication and coordination between teams, establishing clearer priorities and goals, or investing in new technologies or tools to enhance customer service.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the team's approach to prioritizing and allocating customer service resources.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how effective team members are at holding each other accountable is important for creating a productive and responsible work environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how team members hold each other accountable. Consider whether you feel that team members are willing to speak up when expectations are not met, and whether there is a sense of mutual respect and responsibility among team members.
-
-2. Identify any challenges: Identify any challenges or issues with how team members hold each other accountable. These may include a lack of clear expectations or guidelines around accountability, a perception that certain team members receive preferential treatment, or a lack of trust or respect among team members.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how team members hold each other accountable. These may include establishing clearer guidelines or expectations around accountability, providing additional training or support to team members to help them better understand how to hold each other accountable in a respectful and constructive manner, or investing in new technologies or tools to enhance collaboration and communication among team members.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how team members hold each other accountable.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how team members hold each other accountable. Consider whether you feel that team members are willing to speak up when expectations are not met, and whether there is a sense of mutual respect and responsibility among team members.
+2. **Identify any challenges**: Identify any challenges or issues with how team members hold each other accountable. These may include a lack of clear expectations or guidelines around accountability, a perception that certain team members receive preferential treatment, or a lack of trust or respect among team members.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how team members hold each other accountable. These may include establishing clearer guidelines or expectations around accountability, providing additional training or support to team members to help them better understand how to hold each other accountable in a respectful and constructive manner, or investing in new technologies or tools to enhance collaboration and communication among team members.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how team members hold each other accountable.
 
 Sample Answers
 --------------

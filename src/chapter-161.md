@@ -6,15 +6,11 @@ How to Answer
 
 Maintaining a positive team culture is crucial for the success of any team. Here are some tips on how to answer this question:
 
-1. Consider your team's current culture: Before answering this question, it's important to reflect on your team's current culture. Think about what is working well and what could be improved.
-
-2. Identify key factors: Consider the key factors that contribute to a positive team culture. These may include open communication, collaboration, respect, trust, and recognition.
-
-3. Prioritize factors: Once you have identified the key factors, prioritize them based on their importance to your team. Consider which ones have the biggest impact on morale and productivity.
-
-4. Provide examples: To support your answer, provide specific examples of how these factors have contributed to a positive team culture in the past. This will help demonstrate the importance of these factors.
-
-5. Offer suggestions: If there are areas where your team's culture can be improved, offer suggestions on how to address these issues. This will show that you are proactively looking for ways to maintain a positive team culture.
+1. **Consider your team's current culture**: Before answering this question, it's important to reflect on your team's current culture. Think about what is working well and what could be improved.
+2. **Identify key factors**: Consider the key factors that contribute to a positive team culture. These may include open communication, collaboration, respect, trust, and recognition.
+3. **Prioritize factors**: Once you have identified the key factors, prioritize them based on their importance to your team. Consider which ones have the biggest impact on morale and productivity.
+4. **Provide examples**: To support your answer, provide specific examples of how these factors have contributed to a positive team culture in the past. This will help demonstrate the importance of these factors.
+5. **Offer suggestions**: If there are areas where your team's culture can be improved, offer suggestions on how to address these issues. This will show that you are proactively looking for ways to maintain a positive team culture.
 
 Sample Answers
 --------------

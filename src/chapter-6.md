@@ -6,13 +6,10 @@ How to Answer
 
 Understanding team members' job satisfaction is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the team and your level of job satisfaction. Consider whether you feel fulfilled in your role and whether you enjoy working with your colleagues.
-
-2. Identify areas for improvement: Identify any areas where your job satisfaction could be improved. These may include workload management, career growth opportunities, or interpersonal relationships with colleagues.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with your job satisfaction. These may include seeking additional training or mentoring opportunities, adjusting your workload to better align with your strengths and interests, or improving communication and collaboration with colleagues.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with their job satisfaction.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the team and your level of job satisfaction. Consider whether you feel fulfilled in your role and whether you enjoy working with your colleagues.
+2. **Identify areas for improvement**: Identify any areas where your job satisfaction could be improved. These may include workload management, career growth opportunities, or interpersonal relationships with colleagues.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with your job satisfaction. These may include seeking additional training or mentoring opportunities, adjusting your workload to better align with your strengths and interests, or improving communication and collaboration with colleagues.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with their job satisfaction.
 
 Sample Answers
 --------------

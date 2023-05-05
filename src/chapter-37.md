@@ -14,13 +14,9 @@ Sample Answers
 --------------
 
 1. **Effective Accountability:** I think our team does a good job of holding each other accountable for our work and ensuring that tasks are completed on time and to a high standard. We have clear expectations and consequences if those expectations aren't met.
-
 2. **Room for Improvement:** While I appreciate the current level of accountability, I think there is room for improvement. For example, we could establish clearer criteria for accountability and create more formalized processes for addressing accountability issues.
-
 3. **Inconsistent Accountability:** I feel like accountability can be inconsistent across different teams or departments. We could work on establishing consistent standards for accountability, and ensure that all team members are held to the same expectations.
-
 4. **Lack of Transparency:** Sometimes it's unclear how accountability decisions are made or who is responsible for making them. We could work on increasing transparency around our accountability processes and ensuring that everyone understands how accountability works on the team.
-
 5. **More Positive Reinforcement:** While consequences are important for accountability, positive reinforcement can also help motivate team members to take ownership of their work and perform at a high level. We could explore ways to provide more positive feedback and recognition for good work.
 
 Remember, the purpose of answering this survey question is to identify potential improvements for accountability on the team and provide feedback for improvement. By improving accountability, we can create a culture of responsibility and ownership that benefits both the team and individual team members.

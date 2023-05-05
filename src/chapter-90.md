@@ -6,13 +6,10 @@ How to Answer
 
 Receiving feedback from other team members is critical for promoting growth and development within a team. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how often you receive feedback on your work from other team members. Consider whether feedback is provided regularly and effectively, whether there are opportunities for two-way communication, and whether feedback has been beneficial for your growth and development.
-
-2. Identify any challenges: Identify any challenges or issues with receiving feedback on your work from other team members. These may include a lack of opportunities for feedback, ineffective feedback mechanisms, or a perception that feedback is not valued or acted upon.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with receiving feedback on your work from other team members. These may include establishing more opportunities for feedback and two-way communication, providing training or support to help team members give and receive feedback effectively, or adjusting team structures to better support effective feedback mechanisms.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with receiving feedback on their work.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how often you receive feedback on your work from other team members. Consider whether feedback is provided regularly and effectively, whether there are opportunities for two-way communication, and whether feedback has been beneficial for your growth and development.
+2. **Identify any challenges**: Identify any challenges or issues with receiving feedback on your work from other team members. These may include a lack of opportunities for feedback, ineffective feedback mechanisms, or a perception that feedback is not valued or acted upon.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with receiving feedback on your work from other team members. These may include establishing more opportunities for feedback and two-way communication, providing training or support to help team members give and receive feedback effectively, or adjusting team structures to better support effective feedback mechanisms.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with receiving feedback on their work.
 
 Sample Answers
 --------------

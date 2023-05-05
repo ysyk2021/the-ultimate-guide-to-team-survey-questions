@@ -6,13 +6,10 @@ How to Answer
 
 Providing constructive feedback is critical for promoting growth and development within a team. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with providing constructive feedback to other team members. Consider whether there is a culture of openness and respect for different perspectives, whether feedback is provided in a constructive and helpful manner, and whether there are any obstacles to providing feedback.
-
-2. Identify any challenges: Identify any challenges or issues with providing constructive feedback to other team members. These may include a perception that certain team members are resistant to feedback or do not respond positively, a lack of clarity around how to provide feedback effectively, or difficulty in finding the appropriate time or place to provide feedback.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with providing constructive feedback to other team members. These may include providing training or support to help team members provide feedback more effectively, establishing clearer guidelines or policies around feedback, or adjusting team structures to better support open communication and collaboration.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with providing constructive feedback.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with providing constructive feedback to other team members. Consider whether there is a culture of openness and respect for different perspectives, whether feedback is provided in a constructive and helpful manner, and whether there are any obstacles to providing feedback.
+2. **Identify any challenges**: Identify any challenges or issues with providing constructive feedback to other team members. These may include a perception that certain team members are resistant to feedback or do not respond positively, a lack of clarity around how to provide feedback effectively, or difficulty in finding the appropriate time or place to provide feedback.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with providing constructive feedback to other team members. These may include providing training or support to help team members provide feedback more effectively, establishing clearer guidelines or policies around feedback, or adjusting team structures to better support open communication and collaboration.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with providing constructive feedback.
 
 Sample Answers
 --------------

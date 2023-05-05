@@ -6,13 +6,10 @@ How to Answer
 
 Having a diverse and inclusive team is critical for promoting creativity, innovation, and productivity. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of diversity and inclusion within the team. Consider whether there is a diverse range of backgrounds and perspectives represented in the team, whether all team members feel included and valued, and whether the team has made efforts to promote diversity and inclusion.
-
-2. Identify any challenges: Identify any challenges or issues with the level of diversity and inclusion within the team. These may include a perception that certain team members are excluded or marginalized, a lack of understanding around different perspectives and experiences, or difficulty in recognizing and addressing unconscious biases.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of diversity and inclusion within the team. These may include providing training or support to help team members recognize and understand different perspectives and experiences, establishing clearer guidelines or policies around inclusivity and collaboration, or adjusting team structures to better support diversity and inclusion.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of diversity and inclusion within the team.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of diversity and inclusion within the team. Consider whether there is a diverse range of backgrounds and perspectives represented in the team, whether all team members feel included and valued, and whether the team has made efforts to promote diversity and inclusion.
+2. **Identify any challenges**: Identify any challenges or issues with the level of diversity and inclusion within the team. These may include a perception that certain team members are excluded or marginalized, a lack of understanding around different perspectives and experiences, or difficulty in recognizing and addressing unconscious biases.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of diversity and inclusion within the team. These may include providing training or support to help team members recognize and understand different perspectives and experiences, establishing clearer guidelines or policies around inclusivity and collaboration, or adjusting team structures to better support diversity and inclusion.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of diversity and inclusion within the team.
 
 Sample Answers
 --------------

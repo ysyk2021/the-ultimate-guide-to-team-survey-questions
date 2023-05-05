@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how well the team prioritizes and allocates resources to projects is important for maximizing productivity and achieving shared goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team prioritizes and allocates resources to projects. Consider whether you feel that resources are allocated fairly and effectively, and whether there is a clear process for prioritizing projects and allocating resources.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team prioritizes and allocates resources to projects. These may include a lack of communication or transparency around resource allocation, a perception that certain projects receive more resources than others, or a lack of clarity around project priorities.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team prioritizes and allocates resources to projects. These may include establishing clearer guidelines or expectations around resource allocation and project prioritization, creating more opportunities for team members to provide input and feedback on these processes, or investing in new technologies or tools to enhance project management and reporting.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team prioritizes and allocates resources to projects.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team prioritizes and allocates resources to projects. Consider whether you feel that resources are allocated fairly and effectively, and whether there is a clear process for prioritizing projects and allocating resources.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team prioritizes and allocates resources to projects. These may include a lack of communication or transparency around resource allocation, a perception that certain projects receive more resources than others, or a lack of clarity around project priorities.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team prioritizes and allocates resources to projects. These may include establishing clearer guidelines or expectations around resource allocation and project prioritization, creating more opportunities for team members to provide input and feedback on these processes, or investing in new technologies or tools to enhance project management and reporting.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team prioritizes and allocates resources to projects.
 
 Sample Answers
 --------------

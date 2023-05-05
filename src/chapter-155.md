@@ -6,13 +6,10 @@ How to Answer
 
 Understanding team members' satisfaction with recognition and rewards is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with recognition and rewards within the team. Consider whether you feel that team members are appropriately recognized for their contributions.
-
-2. Identify any issues: Identify any issues or challenges with recognition and rewards within the team. These may include inconsistencies in how recognition is provided, a lack of clarity around what behaviors or actions warrant recognition, or a perception that certain team members are favored over others.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with recognition and rewards within the team. These may include establishing clear criteria for recognizing team members, providing additional training or support to ensure that everyone understands what behaviors or actions are valued, or establishing more formal processes for providing feedback and recognition.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with recognition and rewards within the team.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with recognition and rewards within the team. Consider whether you feel that team members are appropriately recognized for their contributions.
+2. **Identify any issues**: Identify any issues or challenges with recognition and rewards within the team. These may include inconsistencies in how recognition is provided, a lack of clarity around what behaviors or actions warrant recognition, or a perception that certain team members are favored over others.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with recognition and rewards within the team. These may include establishing clear criteria for recognizing team members, providing additional training or support to ensure that everyone understands what behaviors or actions are valued, or establishing more formal processes for providing feedback and recognition.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with recognition and rewards within the team.
 
 Sample Answers
 --------------

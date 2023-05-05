@@ -6,13 +6,10 @@ How to Answer
 
 Effective time and priority management is critical for promoting productivity and achieving team goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages its time and priorities. Consider whether there is a clear understanding of team goals and priorities, whether team members are able to allocate their time effectively to achieve these goals and priorities, and whether there are any obstacles to effective time and priority management.
-
-2. Identify any challenges: Identify any challenges or issues with managing time and priorities within the team. These may include a lack of clarity around team goals and priorities, difficulty in prioritizing tasks effectively, or challenges in managing time due to competing demands or other obstacles.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with managing time and priorities within the team. These may include providing training or support to help team members prioritize tasks effectively, establishing clearer guidelines or policies around time and priority management, or adjusting team structures to better support effective time and priority management.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing time and priorities.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages its time and priorities. Consider whether there is a clear understanding of team goals and priorities, whether team members are able to allocate their time effectively to achieve these goals and priorities, and whether there are any obstacles to effective time and priority management.
+2. **Identify any challenges**: Identify any challenges or issues with managing time and priorities within the team. These may include a lack of clarity around team goals and priorities, difficulty in prioritizing tasks effectively, or challenges in managing time due to competing demands or other obstacles.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with managing time and priorities within the team. These may include providing training or support to help team members prioritize tasks effectively, establishing clearer guidelines or policies around time and priority management, or adjusting team structures to better support effective time and priority management.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing time and priorities.
 
 Sample Answers
 --------------

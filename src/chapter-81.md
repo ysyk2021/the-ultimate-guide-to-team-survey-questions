@@ -6,15 +6,11 @@ How to Answer
 
 Sharing information and knowledge is essential for the success of any team. Here are some tips on how to answer this question:
 
-1. Identify current communication channels: Before answering, it's important to identify the current communication channels used by the team. Consider what tools or platforms are currently being used, such as email, messaging apps, or project management software.
-
-2. Evaluate effectiveness: Evaluate the effectiveness of the current communication channels. Consider whether they are easy to use, accessible to all team members, and effectively facilitate the sharing of information and knowledge.
-
-3. Determine gaps: Determine any gaps in the current systems for sharing information and knowledge. Consider whether there are areas where more information could be shared or where certain team members may be left out of important conversations.
-
-4. Propose improvements: Based on your evaluation, propose improvements to the current communication channels. These may include implementing new tools or processes, providing additional training or resources, or establishing new protocols for sharing information and knowledge.
-
-5. Seek feedback: Finally, seek feedback from other team members to ensure that the proposed improvements meet their needs and address any issues they have experienced with the current communication channels.
+1. **Identify current communication channels**: Before answering, it's important to identify the current communication channels used by the team. Consider what tools or platforms are currently being used, such as email, messaging apps, or project management software.
+2. **Evaluate effectiveness**: Evaluate the effectiveness of the current communication channels. Consider whether they are easy to use, accessible to all team members, and effectively facilitate the sharing of information and knowledge.
+3. **Determine gaps**: Determine any gaps in the current systems for sharing information and knowledge. Consider whether there are areas where more information could be shared or where certain team members may be left out of important conversations.
+4. **Propose improvements**: Based on your evaluation, propose improvements to the current communication channels. These may include implementing new tools or processes, providing additional training or resources, or establishing new protocols for sharing information and knowledge.
+5. **Seek feedback**: Finally, seek feedback from other team members to ensure that the proposed improvements meet their needs and address any issues they have experienced with the current communication channels.
 
 Sample Answers
 --------------

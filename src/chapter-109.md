@@ -6,13 +6,10 @@ How to Answer
 
 Having sufficient resources is critical for achieving team goals and promoting productivity. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with whether the team has the resources necessary to achieve its goals. Consider whether there are adequate financial, technological, or personnel resources, whether there is a clear understanding of resource needs and availability, and whether there are any obstacles to accessing necessary resources.
-
-2. Identify any challenges: Identify any challenges or issues with having the necessary resources to achieve team goals. These may include a perception that certain resources are unavailable or insufficient, a lack of clarity around resource needs and availability, or difficulty in accessing necessary resources due to bureaucratic or other obstacles.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with having the necessary resources to achieve team goals. These may include advocating for additional resources from management or external sources, establishing clearer guidelines or policies around resource allocation and utilization, or adjusting team structures to better support resource access and distribution.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with having the necessary resources to achieve team goals.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with whether the team has the resources necessary to achieve its goals. Consider whether there are adequate financial, technological, or personnel resources, whether there is a clear understanding of resource needs and availability, and whether there are any obstacles to accessing necessary resources.
+2. **Identify any challenges**: Identify any challenges or issues with having the necessary resources to achieve team goals. These may include a perception that certain resources are unavailable or insufficient, a lack of clarity around resource needs and availability, or difficulty in accessing necessary resources due to bureaucratic or other obstacles.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with having the necessary resources to achieve team goals. These may include advocating for additional resources from management or external sources, establishing clearer guidelines or policies around resource allocation and utilization, or adjusting team structures to better support resource access and distribution.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with having the necessary resources to achieve team goals.
 
 Sample Answers
 --------------

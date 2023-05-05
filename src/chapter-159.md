@@ -6,13 +6,10 @@ How to Answer
 
 Effective prioritization and allocation of research and development resources is critical for driving innovation and maintaining a competitive edge. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team prioritizes and allocates its research and development resources. Consider whether you feel that the team has a clear understanding of its priorities and goals, and whether resources are allocated accordingly.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team prioritizes and allocates its research and development resources. These may include a lack of communication or transparency around priorities and goals, a perception that certain projects receive more resources than others, or a lack of recognition or reward for innovative ideas or approaches.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team prioritizes and allocates its research and development resources. These may include establishing clearer guidelines or expectations around resource allocation, providing additional training or support to team members to enhance their prioritization skills, or investing in new technologies or tools to enhance research and development reporting.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team prioritizes and allocates its research and development resources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team prioritizes and allocates its research and development resources. Consider whether you feel that the team has a clear understanding of its priorities and goals, and whether resources are allocated accordingly.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team prioritizes and allocates its research and development resources. These may include a lack of communication or transparency around priorities and goals, a perception that certain projects receive more resources than others, or a lack of recognition or reward for innovative ideas or approaches.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team prioritizes and allocates its research and development resources. These may include establishing clearer guidelines or expectations around resource allocation, providing additional training or support to team members to enhance their prioritization skills, or investing in new technologies or tools to enhance research and development reporting.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team prioritizes and allocates its research and development resources.
 
 Sample Answers
 --------------

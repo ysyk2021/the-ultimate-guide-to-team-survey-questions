@@ -6,13 +6,10 @@ How to Answer
 
 Providing regular feedback and recognition is important for keeping team members engaged, motivated, and aligned with organizational goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of feedback and recognition given to team members. Consider whether there is a clear understanding of the importance of feedback and recognition, and whether team members feel valued and supported.
-
-2. Identify any challenges: Identify any challenges or issues with providing feedback and recognition to team members. These may include a lack of resources or personnel dedicated to providing feedback and recognition, a perception that certain team members receive more feedback and recognition than others, or misunderstandings or miscommunications around the importance of feedback and recognition.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with providing feedback and recognition to team members. These may include investing in training or development opportunities to enhance skills and competencies related to feedback and recognition, adjusting team structures to better promote and support feedback and recognition, or establishing clearer guidelines or expectations around feedback and recognition.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with providing feedback and recognition to team members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of feedback and recognition given to team members. Consider whether there is a clear understanding of the importance of feedback and recognition, and whether team members feel valued and supported.
+2. **Identify any challenges**: Identify any challenges or issues with providing feedback and recognition to team members. These may include a lack of resources or personnel dedicated to providing feedback and recognition, a perception that certain team members receive more feedback and recognition than others, or misunderstandings or miscommunications around the importance of feedback and recognition.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with providing feedback and recognition to team members. These may include investing in training or development opportunities to enhance skills and competencies related to feedback and recognition, adjusting team structures to better promote and support feedback and recognition, or establishing clearer guidelines or expectations around feedback and recognition.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with providing feedback and recognition to team members.
 
 Sample Answers
 --------------

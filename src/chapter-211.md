@@ -6,13 +6,10 @@ How to Answer
 
 Effective management of customer or client relationships is crucial for any business. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages its relationships with customers or clients. Consider whether the team has a clear understanding of customer needs and expectations, and whether there is a sense of responsiveness and accountability in addressing customer concerns.
-
-2. Identify any challenges: Identify any challenges or issues with how effectively the team manages its relationships with customers or clients. These may include communication barriers or breakdowns, a lack of responsiveness or follow-up, or a perception that certain team members are not fully engaged in managing customer relationships.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages its relationships with customers or clients. These may include establishing clearer communication channels for sharing information about customer needs and concerns, providing additional training or support to team members to enhance their skills in managing customer relationships, or investing in new technologies or tools to enhance communication and tracking of customer interactions.
-
-4. Seek feedback: Seek feedback from other team members and customers or clients to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages its relationships with customers or clients.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages its relationships with customers or clients. Consider whether the team has a clear understanding of customer needs and expectations, and whether there is a sense of responsiveness and accountability in addressing customer concerns.
+2. **Identify any challenges**: Identify any challenges or issues with how effectively the team manages its relationships with customers or clients. These may include communication barriers or breakdowns, a lack of responsiveness or follow-up, or a perception that certain team members are not fully engaged in managing customer relationships.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages its relationships with customers or clients. These may include establishing clearer communication channels for sharing information about customer needs and concerns, providing additional training or support to team members to enhance their skills in managing customer relationships, or investing in new technologies or tools to enhance communication and tracking of customer interactions.
+4. **Seek feedback**: Seek feedback from other team members and customers or clients to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages its relationships with customers or clients.
 
 Sample Answers
 --------------

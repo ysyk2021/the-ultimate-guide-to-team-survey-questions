@@ -6,13 +6,10 @@ How to Answer
 
 Transparency in decision-making processes is essential for building trust and fostering a positive team culture. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with the level of transparency in the team's decision-making processes. Consider whether you feel that decisions are made in an open and transparent manner, and whether everyone on the team has an equal opportunity to provide input.
-
-2. Identify any challenges: Identify any challenges or issues with the level of transparency in the team's decision-making processes. These may include a perception that certain team members have more influence over decisions than others, a lack of communication or collaboration around decision-making processes, or a perception that decision-making is driven by personal or political factors rather than objective criteria.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with the level of transparency in the team's decision-making processes. These may include establishing clearer communication channels for sharing information about decision-making processes, providing additional training or support to team members to enhance their understanding of decision-making best practices, or investing in new technologies or tools to enhance decision-making transparency.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of transparency in the team's decision-making processes.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with the level of transparency in the team's decision-making processes. Consider whether you feel that decisions are made in an open and transparent manner, and whether everyone on the team has an equal opportunity to provide input.
+2. **Identify any challenges**: Identify any challenges or issues with the level of transparency in the team's decision-making processes. These may include a perception that certain team members have more influence over decisions than others, a lack of communication or collaboration around decision-making processes, or a perception that decision-making is driven by personal or political factors rather than objective criteria.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with the level of transparency in the team's decision-making processes. These may include establishing clearer communication channels for sharing information about decision-making processes, providing additional training or support to team members to enhance their understanding of decision-making best practices, or investing in new technologies or tools to enhance decision-making transparency.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with the level of transparency in the team's decision-making processes.
 
 Sample Answers
 --------------

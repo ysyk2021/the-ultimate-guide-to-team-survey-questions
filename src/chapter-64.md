@@ -14,8 +14,6 @@ Sample Answers
 --------------
 
 1. **Too Fast:** Sometimes the pace and speed of work can feel too fast or overwhelming, making it difficult to complete tasks to a high standard. We could benefit from prioritizing tasks based on their impact and urgency and finding ways to streamline processes.
-
 2. **Too Slow:** Sometimes the pace and speed of work can feel too slow or unchallenging, leading to feelings of boredom or underutilization. We could benefit from identifying opportunities for growth and professional development and finding ways to delegate tasks effectively.
-
 3. **Balanced Workload:** A balanced workload is important for ensuring that individuals are not overwhelmed or underutilized in the workplace. We could benefit from regularly assessing individual workloads and \[Network Error\]
 

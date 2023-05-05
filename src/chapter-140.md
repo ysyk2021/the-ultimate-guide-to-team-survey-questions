@@ -6,13 +6,10 @@ How to Answer
 
 Prioritizing and allocating legal and compliance resources is important for ensuring that the team operates in a legally and ethically sound manner. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team prioritizes and allocates legal and compliance resources. Consider whether there is a clear understanding of the importance of legal and compliance issues, and whether these issues are given appropriate attention and resources.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team prioritizes and allocates legal and compliance resources. These may include a lack of resources or personnel dedicated to legal and compliance issues, competing priorities that can lead to limited attention to these issues, or misunderstandings or miscommunications around legal and compliance requirements.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with prioritizing and allocating legal and compliance resources. These may include investing in additional resources or personnel, establishing clearer guidelines or expectations around legal and compliance issues, or increasing communication and awareness around the importance of legal and compliance requirements.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with prioritizing and allocating legal and compliance resources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team prioritizes and allocates legal and compliance resources. Consider whether there is a clear understanding of the importance of legal and compliance issues, and whether these issues are given appropriate attention and resources.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team prioritizes and allocates legal and compliance resources. These may include a lack of resources or personnel dedicated to legal and compliance issues, competing priorities that can lead to limited attention to these issues, or misunderstandings or miscommunications around legal and compliance requirements.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with prioritizing and allocating legal and compliance resources. These may include investing in additional resources or personnel, establishing clearer guidelines or expectations around legal and compliance issues, or increasing communication and awareness around the importance of legal and compliance requirements.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with prioritizing and allocating legal and compliance resources.
 
 Sample Answers
 --------------

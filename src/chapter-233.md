@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how effectively the team manages relationships with investors or other funding sources is important for securing financial support and maintaining trust with stakeholders. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages relationships with investors or other funding sources. Consider whether you feel that there is clear communication and transparency around financial matters, and whether the team has been successful in securing funding or meeting financial goals.
-
-2. Identify any challenges: Identify any challenges or issues with how effectively the team manages relationships with investors or other funding sources. These may include a lack of clear communication or transparency around financial matters, a perception that certain team members have more influence or control over financial decisions, or a lack of success in securing funding or meeting financial goals.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages relationships with investors or other funding sources. These may include establishing clearer policies or guidelines around financial management and decision-making, providing additional training or support to team members to help them better understand financial matters, or investing in new technologies or tools to enhance financial management and reporting.
-
-4. Seek feedback: Seek feedback from other team members and stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages relationships with investors or other funding sources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages relationships with investors or other funding sources. Consider whether you feel that there is clear communication and transparency around financial matters, and whether the team has been successful in securing funding or meeting financial goals.
+2. **Identify any challenges**: Identify any challenges or issues with how effectively the team manages relationships with investors or other funding sources. These may include a lack of clear communication or transparency around financial matters, a perception that certain team members have more influence or control over financial decisions, or a lack of success in securing funding or meeting financial goals.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages relationships with investors or other funding sources. These may include establishing clearer policies or guidelines around financial management and decision-making, providing additional training or support to team members to help them better understand financial matters, or investing in new technologies or tools to enhance financial management and reporting.
+4. **Seek feedback**: Seek feedback from other team members and stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages relationships with investors or other funding sources.
 
 Sample Answers
 --------------

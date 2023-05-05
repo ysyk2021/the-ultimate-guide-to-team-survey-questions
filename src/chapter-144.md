@@ -6,13 +6,10 @@ How to Answer
 
 Building and maintaining strong relationships with external stakeholders is vital for the success of any team. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team builds and maintains relationships with external stakeholders. Consider whether you feel that there is a culture of communication and collaboration with external stakeholders, and whether team members are able to effectively represent the team's interests in these relationships.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team builds and maintains relationships with external stakeholders. These may include a lack of communication or collaboration around external stakeholder relationships, a perception that certain team members have more influence over these relationships than others, or a lack of clarity around expectations and goals for these relationships.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team builds and maintains relationships with external stakeholders. These may include establishing clearer communication channels for sharing information about external stakeholder relationships, providing additional training or support to team members to enhance their communication and relationship-building skills, or investing in new technologies or tools to enhance communication and collaboration with external stakeholders.
-
-4. Seek feedback: Seek feedback from other team members and external stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team builds and maintains relationships with external stakeholders.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team builds and maintains relationships with external stakeholders. Consider whether you feel that there is a culture of communication and collaboration with external stakeholders, and whether team members are able to effectively represent the team's interests in these relationships.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team builds and maintains relationships with external stakeholders. These may include a lack of communication or collaboration around external stakeholder relationships, a perception that certain team members have more influence over these relationships than others, or a lack of clarity around expectations and goals for these relationships.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team builds and maintains relationships with external stakeholders. These may include establishing clearer communication channels for sharing information about external stakeholder relationships, providing additional training or support to team members to enhance their communication and relationship-building skills, or investing in new technologies or tools to enhance communication and collaboration with external stakeholders.
+4. **Seek feedback**: Seek feedback from other team members and external stakeholders to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team builds and maintains relationships with external stakeholders.
 
 Sample Answers
 --------------

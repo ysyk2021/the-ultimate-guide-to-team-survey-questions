@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how the team manages conflicts and disagreements among members is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with managing conflicts and disagreements within the team. Consider whether you feel that conflicts are addressed and resolved effectively.
-
-2. Identify any challenges: Identify any challenges or issues with how the team manages conflicts and disagreements among members. These may include a lack of communication or transparency, a perception that certain team members are favored over others, or a lack of clear processes for addressing and resolving conflicts.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team manages conflicts and disagreements among members. These may include establishing clearer protocols for addressing and resolving conflicts, providing additional training or support to managers to help them address conflicts effectively, or investing in new technologies or tools to enhance collaboration and teamwork.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team manages conflicts and disagreements among members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with managing conflicts and disagreements within the team. Consider whether you feel that conflicts are addressed and resolved effectively.
+2. **Identify any challenges**: Identify any challenges or issues with how the team manages conflicts and disagreements among members. These may include a lack of communication or transparency, a perception that certain team members are favored over others, or a lack of clear processes for addressing and resolving conflicts.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team manages conflicts and disagreements among members. These may include establishing clearer protocols for addressing and resolving conflicts, providing additional training or support to managers to help them address conflicts effectively, or investing in new technologies or tools to enhance collaboration and teamwork.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team manages conflicts and disagreements among members.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 Encouraging and supporting diversity and inclusion is important for fostering a welcoming and inclusive work environment where all team members feel valued and respected. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team encourages and supports diversity and inclusion among members. Consider whether there is a clear understanding of the importance of diversity and inclusion, and whether the team is proactive in addressing any issues or challenges related to diversity and inclusion.
-
-2. Identify any challenges: Identify any challenges or issues with encouraging and supporting diversity and inclusion among team members. These may include a lack of representation or diversity within the team, a perception that certain team members are not included or valued, or misunderstandings or miscommunications around the importance of diversity and inclusion.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with encouraging and supporting diversity and inclusion among team members. These may include investing in training or development opportunities to enhance skills and competencies related to diversity and inclusion, adjusting team structures to better promote and support diversity and inclusion, or establishing clearer guidelines or expectations around diversity and inclusion.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with encouraging and supporting diversity and inclusion among team members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team encourages and supports diversity and inclusion among members. Consider whether there is a clear understanding of the importance of diversity and inclusion, and whether the team is proactive in addressing any issues or challenges related to diversity and inclusion.
+2. **Identify any challenges**: Identify any challenges or issues with encouraging and supporting diversity and inclusion among team members. These may include a lack of representation or diversity within the team, a perception that certain team members are not included or valued, or misunderstandings or miscommunications around the importance of diversity and inclusion.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with encouraging and supporting diversity and inclusion among team members. These may include investing in training or development opportunities to enhance skills and competencies related to diversity and inclusion, adjusting team structures to better promote and support diversity and inclusion, or establishing clearer guidelines or expectations around diversity and inclusion.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with encouraging and supporting diversity and inclusion among team members.
 
 Sample Answers
 --------------

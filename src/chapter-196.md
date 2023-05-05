@@ -6,13 +6,10 @@ How to Answer
 
 Effective conflict resolution is important for any team that wants to maintain positive relationships and work collaboratively towards shared goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team members resolve conflicts and disagreements. Consider whether there is a sense of openness and respect in addressing differing opinions, and whether conflicts are resolved in a timely and constructive manner.
-
-2. Identify any challenges: Identify any challenges or issues with how effectively the team members resolve conflicts and disagreements. These may include communication breakdowns or misunderstandings, a lack of trust or respect among team members, or a perception that certain team members dominate discussions and decision-making processes.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team members resolve conflicts and disagreements. These may include providing additional training or support to team members to enhance their skills in conflict resolution, establishing clearer communication channels for sharing information about conflicts and disagreements, or investing in team-building activities to strengthen trust and respect among team members.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team members resolve conflicts and disagreements.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team members resolve conflicts and disagreements. Consider whether there is a sense of openness and respect in addressing differing opinions, and whether conflicts are resolved in a timely and constructive manner.
+2. **Identify any challenges**: Identify any challenges or issues with how effectively the team members resolve conflicts and disagreements. These may include communication breakdowns or misunderstandings, a lack of trust or respect among team members, or a perception that certain team members dominate discussions and decision-making processes.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team members resolve conflicts and disagreements. These may include providing additional training or support to team members to enhance their skills in conflict resolution, establishing clearer communication channels for sharing information about conflicts and disagreements, or investing in team-building activities to strengthen trust and respect among team members.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team members resolve conflicts and disagreements.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 The ability to adapt to change and unexpected challenges is critical for success in today's fast-paced business environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team adapts to change and unexpected challenges. Consider whether you feel that the team is agile and flexible in responding to new situations, and whether there is a culture of innovation and experimentation.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team adapts to change and unexpected challenges. These may include a lack of communication or transparency around changes or challenges, a perception that certain team members are resistant to change, or a lack of resources or support for adapting to new situations.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team adapts to change and unexpected challenges. These may include establishing clearer communication channels for sharing information about changes or challenges, providing additional training or support to team members to enhance their agility and flexibility, or investing in new technologies or tools to enhance change management processes.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team adapts to change and unexpected challenges.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team adapts to change and unexpected challenges. Consider whether you feel that the team is agile and flexible in responding to new situations, and whether there is a culture of innovation and experimentation.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team adapts to change and unexpected challenges. These may include a lack of communication or transparency around changes or challenges, a perception that certain team members are resistant to change, or a lack of resources or support for adapting to new situations.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team adapts to change and unexpected challenges. These may include establishing clearer communication channels for sharing information about changes or challenges, providing additional training or support to team members to enhance their agility and flexibility, or investing in new technologies or tools to enhance change management processes.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team adapts to change and unexpected challenges.
 
 Sample Answers
 --------------

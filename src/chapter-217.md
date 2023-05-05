@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how well the team addresses and resolves issues related to workplace harassment or discrimination is important for ensuring a safe and respectful work environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how the team addresses and resolves issues related to workplace harassment or discrimination. Consider whether you feel that the team takes these issues seriously and has effective processes in place to address them.
-
-2. Identify any challenges: Identify any challenges or issues with how the team addresses and resolves issues related to workplace harassment or discrimination. These may include a lack of clear policies or procedures for reporting and addressing incidents, a perception that certain team members are not held accountable for their actions, or a lack of support or resources for those who experience harassment or discrimination.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team addresses and resolves issues related to workplace harassment or discrimination. These may include establishing clearer policies and procedures for reporting and addressing incidents, providing additional training or support to team members to help them recognize and respond to instances of harassment or discrimination, or investing in new technologies or tools to enhance reporting and accountability.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team addresses and resolves issues related to workplace harassment or discrimination.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how the team addresses and resolves issues related to workplace harassment or discrimination. Consider whether you feel that the team takes these issues seriously and has effective processes in place to address them.
+2. **Identify any challenges**: Identify any challenges or issues with how the team addresses and resolves issues related to workplace harassment or discrimination. These may include a lack of clear policies or procedures for reporting and addressing incidents, a perception that certain team members are not held accountable for their actions, or a lack of support or resources for those who experience harassment or discrimination.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team addresses and resolves issues related to workplace harassment or discrimination. These may include establishing clearer policies and procedures for reporting and addressing incidents, providing additional training or support to team members to help them recognize and respond to instances of harassment or discrimination, or investing in new technologies or tools to enhance reporting and accountability.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team addresses and resolves issues related to workplace harassment or discrimination.
 
 Sample Answers
 --------------

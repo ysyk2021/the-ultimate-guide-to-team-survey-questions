@@ -6,13 +6,10 @@ How to Answer
 
 Effective management of physical resources is critical for supporting productivity and ensuring a comfortable and safe work environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team manages and allocates physical resources. Consider whether there are clear policies and procedures in place for managing resources, whether resources are allocated fairly and efficiently, and whether there are any issues or challenges with the physical resources available.
-
-2. Identify any challenges: Identify any challenges or issues with managing and allocating physical resources. These may include insufficient resources or budget allocated for maintaining or upgrading equipment or office space, a lack of clear guidelines around resource sharing or allocation, or conflicts or misunderstandings regarding resource use.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with managing and allocating physical resources. These may include establishing clearer policies and procedures around resource management and allocation, investing in additional resources or budget to support maintenance or upgrades, or providing training or support to help team members navigate differences in resource use.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing and allocating physical resources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team manages and allocates physical resources. Consider whether there are clear policies and procedures in place for managing resources, whether resources are allocated fairly and efficiently, and whether there are any issues or challenges with the physical resources available.
+2. **Identify any challenges**: Identify any challenges or issues with managing and allocating physical resources. These may include insufficient resources or budget allocated for maintaining or upgrading equipment or office space, a lack of clear guidelines around resource sharing or allocation, or conflicts or misunderstandings regarding resource use.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with managing and allocating physical resources. These may include establishing clearer policies and procedures around resource management and allocation, investing in additional resources or budget to support maintenance or upgrades, or providing training or support to help team members navigate differences in resource use.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing and allocating physical resources.
 
 Sample Answers
 --------------

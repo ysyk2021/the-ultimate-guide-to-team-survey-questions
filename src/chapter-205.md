@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how effective the team members are at mitigating risks and potential challenges is important for ensuring successful project outcomes and minimizing negative impacts. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effective the team members are at mitigating risks and potential challenges. Consider whether you feel that risks are identified and addressed in a timely and effective manner, and whether there is a clear process for risk management.
-
-2. Identify any challenges: Identify any challenges or issues with how effective the team members are at mitigating risks and potential challenges. These may include a lack of communication or transparency around risk management, a perception that certain team members are better at identifying and addressing risks than others, or a lack of resources or support for effective risk management.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how effective the team members are at mitigating risks and potential challenges. These may include establishing clearer guidelines or expectations around risk management, providing additional training or support to team members to enhance their risk management skills, or investing in new technologies or tools to enhance risk management and reporting.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how effective the team members are at mitigating risks and potential challenges.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effective the team members are at mitigating risks and potential challenges. Consider whether you feel that risks are identified and addressed in a timely and effective manner, and whether there is a clear process for risk management.
+2. **Identify any challenges**: Identify any challenges or issues with how effective the team members are at mitigating risks and potential challenges. These may include a lack of communication or transparency around risk management, a perception that certain team members are better at identifying and addressing risks than others, or a lack of resources or support for effective risk management.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how effective the team members are at mitigating risks and potential challenges. These may include establishing clearer guidelines or expectations around risk management, providing additional training or support to team members to enhance their risk management skills, or investing in new technologies or tools to enhance risk management and reporting.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how effective the team members are at mitigating risks and potential challenges.
 
 Sample Answers
 --------------

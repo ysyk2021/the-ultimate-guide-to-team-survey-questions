@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how the team encourages and supports continuous learning and professional development is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how the team encourages and supports continuous learning and professional development. Consider whether you feel that the team provides adequate opportunities for learning and growth.
-
-2. Identify any challenges: Identify any challenges or issues with how the team encourages and supports continuous learning and professional development. These may include a lack of clear career development paths or opportunities for training and development, a perception that certain team members receive more training or development opportunities than others, or a lack of recognition or rewards for learning and development efforts.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team encourages and supports continuous learning and professional development. These may include establishing clearer career development paths and opportunities for training and development, providing additional training or support to managers to help them identify and support individual learning needs, or investing in new technologies or tools to enhance learning and development opportunities.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team encourages and supports continuous learning and professional development.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how the team encourages and supports continuous learning and professional development. Consider whether you feel that the team provides adequate opportunities for learning and growth.
+2. **Identify any challenges**: Identify any challenges or issues with how the team encourages and supports continuous learning and professional development. These may include a lack of clear career development paths or opportunities for training and development, a perception that certain team members receive more training or development opportunities than others, or a lack of recognition or rewards for learning and development efforts.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team encourages and supports continuous learning and professional development. These may include establishing clearer career development paths and opportunities for training and development, providing additional training or support to managers to help them identify and support individual learning needs, or investing in new technologies or tools to enhance learning and development opportunities.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team encourages and supports continuous learning and professional development.
 
 Sample Answers
 --------------

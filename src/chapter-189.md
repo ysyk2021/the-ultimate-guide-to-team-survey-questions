@@ -6,13 +6,10 @@ How to Answer
 
 Managing relationships with direct competitors is important for maintaining a competitive edge and remaining relevant in the marketplace. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages relationships with direct competitors. Consider whether there is a clear understanding of the competitive landscape, and whether the team is proactive in building relationships with competitors.
-
-2. Identify any challenges: Identify any challenges or issues with how effectively the team manages relationships with direct competitors. These may include a lack of resources or personnel dedicated to managing these relationships, a perception that certain team members prioritize other tasks over competitor relationships, or misunderstandings or miscommunications around the importance of building and maintaining these relationships.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with direct competitors. These may include investing in additional resources or personnel to better support competitor relationship management, establishing clearer guidelines or expectations around the importance of these relationships, or increasing communication and awareness around the competitive landscape.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with direct competitors.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages relationships with direct competitors. Consider whether there is a clear understanding of the competitive landscape, and whether the team is proactive in building relationships with competitors.
+2. **Identify any challenges**: Identify any challenges or issues with how effectively the team manages relationships with direct competitors. These may include a lack of resources or personnel dedicated to managing these relationships, a perception that certain team members prioritize other tasks over competitor relationships, or misunderstandings or miscommunications around the importance of building and maintaining these relationships.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with direct competitors. These may include investing in additional resources or personnel to better support competitor relationship management, establishing clearer guidelines or expectations around the importance of these relationships, or increasing communication and awareness around the competitive landscape.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with direct competitors.
 
 Sample Answers
 --------------

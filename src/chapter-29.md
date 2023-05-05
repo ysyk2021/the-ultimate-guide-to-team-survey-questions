@@ -6,15 +6,11 @@ How to Answer
 
 Understanding the impact of your team on your industry is important for evaluating overall performance. Here are some tips on how to answer this question:
 
-1. Consider your industry: Before answering, consider your industry and the role that your team plays within it. Think about the challenges and opportunities facing your industry.
-
-2. Reflect on your team's contributions: Reflect on your team's contributions to the industry. Consider the projects or initiatives your team has undertaken and how they have impacted the industry.
-
-3. Identify strengths and weaknesses: Identify the strengths and weaknesses of your team's impact on the industry. Consider what is working well and what could be improved.
-
-4. Propose improvements: Based on your evaluation, propose improvements to enhance your team's impact on the industry. These may include identifying new areas for innovation or collaboration, improving knowledge sharing and best practices across the industry, or enhancing your team's reputation and thought leadership.
-
-5. Seek feedback: Seek feedback from other team members and stakeholders in the industry to ensure that proposed improvements meet their needs and address any issues they have experienced with your team's impact on the industry.
+1. **Consider your industry**: Before answering, consider your industry and the role that your team plays within it. Think about the challenges and opportunities facing your industry.
+2. **Reflect on your team's contributions**: Reflect on your team's contributions to the industry. Consider the projects or initiatives your team has undertaken and how they have impacted the industry.
+3. **Identify strengths and weaknesses**: Identify the strengths and weaknesses of your team's impact on the industry. Consider what is working well and what could be improved.
+4. **Propose improvements**: Based on your evaluation, propose improvements to enhance your team's impact on the industry. These may include identifying new areas for innovation or collaboration, improving knowledge sharing and best practices across the industry, or enhancing your team's reputation and thought leadership.
+5. **Seek feedback**: Seek feedback from other team members and stakeholders in the industry to ensure that proposed improvements meet their needs and address any issues they have experienced with your team's impact on the industry.
 
 Sample Answers
 --------------

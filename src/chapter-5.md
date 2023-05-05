@@ -6,15 +6,11 @@ How to Answer
 
 Asking where team members see the team in five years can help identify important goals and objectives. Here are some tips on how to answer this question:
 
-1. Consider your team's strengths and weaknesses: Before answering, consider your team's current strengths and weaknesses and how they may affect future growth and development.
-
-2. Reflect on industry trends: Reflect on industry trends and changes that may impact the team over the next five years. Consider how emerging technologies, regulatory changes, or shifts in consumer behavior may affect the team's work.
-
-3. Identify opportunities: Identify opportunities for growth and development over the next five years. These may include expanding into new markets, developing new products or services, or establishing new partnerships or collaborations.
-
-4. Propose a vision: Based on your evaluation, propose a vision for where the team could be in five years. This vision should be aspirational but also realistic and achievable based on the team's current capabilities and resources.
-
-5. Seek feedback: Seek feedback from other team members to ensure that your proposed vision aligns with their thoughts and ideas for the team's future.
+1. **Consider your team's strengths and weaknesses**: Before answering, consider your team's current strengths and weaknesses and how they may affect future growth and development.
+2. **Reflect on industry trends**: Reflect on industry trends and changes that may impact the team over the next five years. Consider how emerging technologies, regulatory changes, or shifts in consumer behavior may affect the team's work.
+3. **Identify opportunities**: Identify opportunities for growth and development over the next five years. These may include expanding into new markets, developing new products or services, or establishing new partnerships or collaborations.
+4. **Propose a vision**: Based on your evaluation, propose a vision for where the team could be in five years. This vision should be aspirational but also realistic and achievable based on the team's current capabilities and resources.
+5. **Seek feedback**: Seek feedback from other team members to ensure that your proposed vision aligns with their thoughts and ideas for the team's future.
 
 Sample Answers
 --------------

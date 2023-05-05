@@ -6,13 +6,10 @@ How to Answer
 
 Managing relationships with partners or affiliates is important for achieving success in any team. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages relationships with partners or affiliates. Consider whether there is a sense of collaboration and mutual respect in these relationships, and whether conflicts or misunderstandings are addressed in a timely and constructive manner.
-
-2. Identify any challenges: Identify any challenges or issues with how effectively the team manages relationships with partners or affiliates. These may include communication breakdowns or misunderstandings, a lack of trust or respect among team members and partners, or a perception that certain team members or partners dominate discussions and decision-making processes.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with partners or affiliates. These may include providing additional training or support to team members to enhance their skills in relationship management, establishing clearer communication channels for sharing information about partnerships and affiliates, or investing in team-building activities to strengthen trust and respect among team members and partners.
-
-4. Seek feedback: Seek feedback from other team members and partners to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with partners or affiliates.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages relationships with partners or affiliates. Consider whether there is a sense of collaboration and mutual respect in these relationships, and whether conflicts or misunderstandings are addressed in a timely and constructive manner.
+2. **Identify any challenges**: Identify any challenges or issues with how effectively the team manages relationships with partners or affiliates. These may include communication breakdowns or misunderstandings, a lack of trust or respect among team members and partners, or a perception that certain team members or partners dominate discussions and decision-making processes.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with managing relationships with partners or affiliates. These may include providing additional training or support to team members to enhance their skills in relationship management, establishing clearer communication channels for sharing information about partnerships and affiliates, or investing in team-building activities to strengthen trust and respect among team members and partners.
+4. **Seek feedback**: Seek feedback from other team members and partners to ensure that proposed improvements meet their needs and address any issues they have experienced with managing relationships with partners or affiliates.
 
 Sample Answers
 --------------

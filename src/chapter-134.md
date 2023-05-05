@@ -6,13 +6,10 @@ How to Answer
 
 Encouraging ongoing learning and development is important for keeping team members engaged, motivated, and aligned with organizational goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team encourages ongoing learning and development among members. Consider whether there are opportunities for growth and development, and whether team members feel supported in pursuing these opportunities.
-
-2. Identify any challenges: Identify any challenges or issues with encouraging ongoing learning and development among team members. These may include a lack of resources or budget allocated to training and development, a perception that certain team members receive more opportunities for growth than others, or misunderstandings or miscommunications around the importance of learning and development.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with encouraging ongoing learning and development among team members. These may include investing in additional resources or budget to support training and development initiatives, adjusting team structures to better promote and support learning and development, or establishing clearer guidelines or expectations around learning and development.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with encouraging ongoing learning and development among team members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team encourages ongoing learning and development among members. Consider whether there are opportunities for growth and development, and whether team members feel supported in pursuing these opportunities.
+2. **Identify any challenges**: Identify any challenges or issues with encouraging ongoing learning and development among team members. These may include a lack of resources or budget allocated to training and development, a perception that certain team members receive more opportunities for growth than others, or misunderstandings or miscommunications around the importance of learning and development.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with encouraging ongoing learning and development among team members. These may include investing in additional resources or budget to support training and development initiatives, adjusting team structures to better promote and support learning and development, or establishing clearer guidelines or expectations around learning and development.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with encouraging ongoing learning and development among team members.
 
 Sample Answers
 --------------

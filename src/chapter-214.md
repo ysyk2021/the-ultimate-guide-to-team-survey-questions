@@ -6,13 +6,10 @@ How to Answer
 
 Maintaining strong relationships with investors or shareholders is essential for the success of any organization. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how effectively the team manages relationships with investors or shareholders. Consider whether you feel that the team communicates effectively with investors or shareholders and whether there is a culture of transparency and accountability.
-
-2. Identify any challenges: Identify any challenges or issues with how effectively the team manages relationships with investors or shareholders. These may include a lack of communication or transparency around financial performance, a perception that certain team members prioritize their own interests over those of investors or shareholders, or a lack of responsiveness to investor or shareholder concerns.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages relationships with investors or shareholders. These may include establishing clearer communication channels for sharing information about financial performance, providing additional training or support to team members to enhance their understanding of investor or shareholder concerns, or investing in new technologies or tools to enhance investor or shareholder reporting.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages relationships with investors or shareholders.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how effectively the team manages relationships with investors or shareholders. Consider whether you feel that the team communicates effectively with investors or shareholders and whether there is a culture of transparency and accountability.
+2. **Identify any challenges**: Identify any challenges or issues with how effectively the team manages relationships with investors or shareholders. These may include a lack of communication or transparency around financial performance, a perception that certain team members prioritize their own interests over those of investors or shareholders, or a lack of responsiveness to investor or shareholder concerns.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how effectively the team manages relationships with investors or shareholders. These may include establishing clearer communication channels for sharing information about financial performance, providing additional training or support to team members to enhance their understanding of investor or shareholder concerns, or investing in new technologies or tools to enhance investor or shareholder reporting.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how effectively the team manages relationships with investors or shareholders.
 
 Sample Answers
 --------------

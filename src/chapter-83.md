@@ -6,13 +6,10 @@ How to Answer
 
 Being satisfied with one's role on a team is crucial for engagement and productivity. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with your role on the team. Consider whether you feel that your role aligns with your skills and interests, and whether you have opportunities to grow and develop within the team.
-
-2. Identify any challenges: Identify any challenges or issues with your role on the team. These may include feeling undervalued or underutilized, a lack of clarity around expectations for your role, or a perception that certain team members are receiving more opportunities or recognition than others.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with your role on the team. These may include seeking feedback from team leaders or colleagues to gain a clearer understanding of expectations for your role, or identifying areas where you can contribute more effectively to the team's goals and objectives.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with their roles on the team.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with your role on the team. Consider whether you feel that your role aligns with your skills and interests, and whether you have opportunities to grow and develop within the team.
+2. **Identify any challenges**: Identify any challenges or issues with your role on the team. These may include feeling undervalued or underutilized, a lack of clarity around expectations for your role, or a perception that certain team members are receiving more opportunities or recognition than others.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with your role on the team. These may include seeking feedback from team leaders or colleagues to gain a clearer understanding of expectations for your role, or identifying areas where you can contribute more effectively to the team's goals and objectives.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with their roles on the team.
 
 Sample Answers
 --------------

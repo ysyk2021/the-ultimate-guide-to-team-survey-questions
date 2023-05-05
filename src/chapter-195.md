@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how well the team recognizes and leverages the strengths and skills of individual members is important for maximizing productivity and achieving shared goals. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team recognizes and leverages the strengths and skills of individual members. Consider whether you feel that your unique strengths and skills are recognized and valued, and whether you have had opportunities to apply these strengths and skills in meaningful ways.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team recognizes and leverages the strengths and skills of individual members. These may include a lack of communication or understanding around individual strengths and skills, a perception that certain team members are favored or receive more opportunities than others, or a lack of opportunities to apply individual strengths and skills due to workload or project constraints.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team recognizes and leverages the strengths and skills of individual members. These may include establishing clearer channels for communication and feedback around individual strengths and skills, creating more opportunities for team members to showcase their abilities, or investing in new technologies or tools to enhance collaboration and knowledge-sharing among team members.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team recognizes and leverages the strengths and skills of individual members.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team recognizes and leverages the strengths and skills of individual members. Consider whether you feel that your unique strengths and skills are recognized and valued, and whether you have had opportunities to apply these strengths and skills in meaningful ways.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team recognizes and leverages the strengths and skills of individual members. These may include a lack of communication or understanding around individual strengths and skills, a perception that certain team members are favored or receive more opportunities than others, or a lack of opportunities to apply individual strengths and skills due to workload or project constraints.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team recognizes and leverages the strengths and skills of individual members. These may include establishing clearer channels for communication and feedback around individual strengths and skills, creating more opportunities for team members to showcase their abilities, or investing in new technologies or tools to enhance collaboration and knowledge-sharing among team members.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team recognizes and leverages the strengths and skills of individual members.
 
 Sample Answers
 --------------

@@ -6,13 +6,10 @@ How to Answer
 
 Asking team members to identify the team's biggest weaknesses can be a valuable tool for identifying areas that need improvement and fostering a culture of open communication. Here are some tips on how to answer this question:
 
-1. Be honest: It's important to be honest when answering this question. Identify areas where you feel the team could improve, even if they are uncomfortable or challenging to discuss.
-
-2. Be constructive: When identifying weaknesses, focus on proposing solutions or improvements rather than simply pointing out problems. This can help ensure that feedback is actionable and leads to positive change.
-
-3. Consider context: When identifying weaknesses, consider the context in which they occur. For example, a weakness may be more or less significant depending on the size of the team or the nature of the work being done.
-
-4. Seek feedback: Seek feedback from other team members to ensure that identified weaknesses resonate with the rest of the team and that proposed improvements meet their needs and expectations.
+1. **Be honest**: It's important to be honest when answering this question. Identify areas where you feel the team could improve, even if they are uncomfortable or challenging to discuss.
+2. **Be constructive**: When identifying weaknesses, focus on proposing solutions or improvements rather than simply pointing out problems. This can help ensure that feedback is actionable and leads to positive change.
+3. **Consider context**: When identifying weaknesses, consider the context in which they occur. For example, a weakness may be more or less significant depending on the size of the team or the nature of the work being done.
+4. **Seek feedback**: Seek feedback from other team members to ensure that identified weaknesses resonate with the rest of the team and that proposed improvements meet their needs and expectations.
 
 Sample Answers
 --------------

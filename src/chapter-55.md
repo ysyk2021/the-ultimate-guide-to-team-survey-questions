@@ -6,13 +6,10 @@ How to Answer
 
 Managing and prioritizing competing priorities is a challenge for many teams. Here are some tips on how to answer this question:
 
-1. Identify the challenges: Before answering, identify the challenges that the team faces in managing and prioritizing competing priorities. Consider whether there are issues with communication, resource allocation, or conflicting objectives.
-
-2. Propose solutions: Based on your evaluation, propose solutions to address these challenges. These may include establishing clear goals and priorities, assigning ownership of tasks to specific team members, or setting realistic timelines and deadlines.
-
-3. Consider trade-offs: When proposing solutions, consider the trade-offs involved in each option. For example, prioritizing one project over another may mean delaying progress on the lower-priority project, or delegating tasks to one team member may increase their workload.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed solutions meet their needs and address any issues they have experienced with managing and prioritizing competing priorities.
+1. **Identify the challenges**: Before answering, identify the challenges that the team faces in managing and prioritizing competing priorities. Consider whether there are issues with communication, resource allocation, or conflicting objectives.
+2. **Propose solutions**: Based on your evaluation, propose solutions to address these challenges. These may include establishing clear goals and priorities, assigning ownership of tasks to specific team members, or setting realistic timelines and deadlines.
+3. **Consider trade-offs**: When proposing solutions, consider the trade-offs involved in each option. For example, prioritizing one project over another may mean delaying progress on the lower-priority project, or delegating tasks to one team member may increase their workload.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed solutions meet their needs and address any issues they have experienced with managing and prioritizing competing priorities.
 
 Sample Answers
 --------------

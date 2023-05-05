@@ -6,13 +6,10 @@ How to Answer
 
 Effective management of environmental resources is critical for supporting sustainability and minimizing negative impacts on the environment. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team prioritizes and allocates environmental resources. Consider whether there are clear sustainability goals and targets, whether there are policies and procedures in place to support sustainable practices, and whether team members are engaged in efforts to manage environmental resources.
-
-2. Identify any challenges: Identify any challenges or issues with prioritizing and allocating environmental resources. These may include a lack of clear sustainability goals or targets, a lack of understanding or awareness around sustainable practices, or insufficient resources or budget allocated to environmental management efforts.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with prioritizing and allocating environmental resources. These may include establishing clearer sustainability goals and targets, providing training and education to team members on sustainable practices, or investing in additional resources or budget to support environmental management efforts.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with prioritizing and allocating environmental resources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team prioritizes and allocates environmental resources. Consider whether there are clear sustainability goals and targets, whether there are policies and procedures in place to support sustainable practices, and whether team members are engaged in efforts to manage environmental resources.
+2. **Identify any challenges**: Identify any challenges or issues with prioritizing and allocating environmental resources. These may include a lack of clear sustainability goals or targets, a lack of understanding or awareness around sustainable practices, or insufficient resources or budget allocated to environmental management efforts.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with prioritizing and allocating environmental resources. These may include establishing clearer sustainability goals and targets, providing training and education to team members on sustainable practices, or investing in additional resources or budget to support environmental management efforts.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with prioritizing and allocating environmental resources.
 
 Sample Answers
 --------------

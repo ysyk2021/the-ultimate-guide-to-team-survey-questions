@@ -6,13 +6,10 @@ How to Answer
 
 Balancing short-term and long-term goals is important for any team that wants to achieve sustainable success. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team balances its short-term and long-term goals. Consider whether the team has a clear understanding of both types of goals, and whether there is a sense of prioritization and alignment between them.
-
-2. Identify any challenges: Identify any challenges or issues with how well the team balances its short-term and long-term goals. These may include conflicting priorities or values among team members, a lack of clarity around expectations for each type of goal, or a perception that certain team members have more influence over these processes than others.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how well the team balances its short-term and long-term goals. These may include establishing clearer communication channels for sharing information about priorities and decision-making processes, providing additional training or support to team members to enhance their skills in balancing short-term and long-term goals, or investing in new technologies or tools to enhance decision-making and prioritization.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team balances its short-term and long-term goals.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team balances its short-term and long-term goals. Consider whether the team has a clear understanding of both types of goals, and whether there is a sense of prioritization and alignment between them.
+2. **Identify any challenges**: Identify any challenges or issues with how well the team balances its short-term and long-term goals. These may include conflicting priorities or values among team members, a lack of clarity around expectations for each type of goal, or a perception that certain team members have more influence over these processes than others.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how well the team balances its short-term and long-term goals. These may include establishing clearer communication channels for sharing information about priorities and decision-making processes, providing additional training or support to team members to enhance their skills in balancing short-term and long-term goals, or investing in new technologies or tools to enhance decision-making and prioritization.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how well the team balances its short-term and long-term goals.
 
 Sample Answers
 --------------

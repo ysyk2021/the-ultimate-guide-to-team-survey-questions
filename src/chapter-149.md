@@ -6,13 +6,10 @@ How to Answer
 
 Prioritizing and allocating technology and digital resources is important for ensuring that team members have the tools and resources they need to perform their work effectively. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how well the team prioritizes and allocates its technology and digital resources. Consider whether there is a clear understanding of the importance of these resources, and whether team members have access to the tools and resources they need.
-
-2. Identify any challenges: Identify any challenges or issues with prioritizing and allocating technology and digital resources. These may include a lack of resources or budget allocated to these areas, a perception that certain team members or departments receive more resources than others, or misunderstandings or miscommunications around the importance of technology and digital resources.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with prioritizing and allocating technology and digital resources. These may include investing in additional resources or budget to support technology and digital initiatives, adjusting team structures to better promote and support these areas, or establishing clearer guidelines or expectations around technology and digital resources.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with prioritizing and allocating technology and digital resources.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how well the team prioritizes and allocates its technology and digital resources. Consider whether there is a clear understanding of the importance of these resources, and whether team members have access to the tools and resources they need.
+2. **Identify any challenges**: Identify any challenges or issues with prioritizing and allocating technology and digital resources. These may include a lack of resources or budget allocated to these areas, a perception that certain team members or departments receive more resources than others, or misunderstandings or miscommunications around the importance of technology and digital resources.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with prioritizing and allocating technology and digital resources. These may include investing in additional resources or budget to support technology and digital initiatives, adjusting team structures to better promote and support these areas, or establishing clearer guidelines or expectations around technology and digital resources.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with prioritizing and allocating technology and digital resources.
 
 Sample Answers
 --------------

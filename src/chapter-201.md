@@ -6,13 +6,10 @@ How to Answer
 
 Understanding how the team manages and leverages its relationships with external partners and vendors is important for evaluating overall performance and identifying areas for improvement. Here are some tips on how to answer this question:
 
-1. Reflect on your experience: Before answering, reflect on your own experience with how the team manages and leverages its relationships with external partners and vendors. Consider whether you feel that the team establishes and maintains positive relationships with these parties.
-
-2. Identify any challenges: Identify any challenges or issues with how the team manages and leverages its relationships with external partners and vendors. These may include a lack of clear communication or transparency around expectations or deliverables, a perception that certain partners or vendors receive preferential treatment over others, or a lack of accountability or follow-up on commitments.
-
-3. Propose improvements: Based on your evaluation, propose improvements to address any challenges or issues with how the team manages and leverages its relationships with external partners and vendors. These may include establishing clearer communication channels and protocols for managing these relationships, providing additional training or support to managers to help them build and maintain positive relationships with external partners and vendors, or investing in new technologies or tools to enhance collaboration and communication.
-
-4. Seek feedback: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team manages and leverages its relationships with external partners and vendors.
+1. **Reflect on your experience**: Before answering, reflect on your own experience with how the team manages and leverages its relationships with external partners and vendors. Consider whether you feel that the team establishes and maintains positive relationships with these parties.
+2. **Identify any challenges**: Identify any challenges or issues with how the team manages and leverages its relationships with external partners and vendors. These may include a lack of clear communication or transparency around expectations or deliverables, a perception that certain partners or vendors receive preferential treatment over others, or a lack of accountability or follow-up on commitments.
+3. **Propose improvements**: Based on your evaluation, propose improvements to address any challenges or issues with how the team manages and leverages its relationships with external partners and vendors. These may include establishing clearer communication channels and protocols for managing these relationships, providing additional training or support to managers to help them build and maintain positive relationships with external partners and vendors, or investing in new technologies or tools to enhance collaboration and communication.
+4. **Seek feedback**: Seek feedback from other team members to ensure that proposed improvements meet their needs and address any issues they have experienced with how the team manages and leverages its relationships with external partners and vendors.
 
 Sample Answers
 --------------

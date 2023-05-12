@@ -2,8 +2,11 @@ npm install
 npx honkit epub ./ the-ultimate-guide-to-team-survey-questions.epub
 
 ebook-convert the-ultimate-guide-to-team-survey-questions.epub the-ultimate-guide-to-team-survey-questions.pdf --no-chapters-in-toc --chapter-mark=none --subset-embedded-fonts  --pdf-page-numbers --disable-markup-chapter-headings --paper-size a4 --pdf-page-margin-bottom 36 --pdf-page-margin-left 36 --pdf-page-margin-right 36 --pdf-page-margin-top 36 --extra-css page_styles.css
+ebook-convert the-ultimate-guide-to-team-survey-questions.epub the-ultimate-guide-to-team-survey-questions-hardcover.pdf --no-chapters-in-toc --chapter-mark=none --subset-embedded-fonts  --pdf-page-numbers --disable-markup-chapter-headings --paper-size a3 --pdf-page-margin-bottom 36 --pdf-page-margin-left 36 --pdf-page-margin-right 36 --pdf-page-margin-top 36 --extra-css page_styles.css
 
 ebook-convert the-ultimate-guide-to-team-survey-questions.epub the-ultimate-guide-to-team-survey-questions.docx --no-chapters-in-toc --chapter-mark=none --subset-embedded-fonts --docx-no-cover --disable-markup-chapter-headings --docx-page-size a4 --docx-page-margin-bottom 36 --docx-page-margin-left 36 --docx-page-margin-right 36 --docx-page-margin-top 36 --extra-css page_styles.css
 
 # brew install pdftk-java
 java -jar "/usr/local/Cellar/pdftk-java/3.3.3/libexec/pdftk-all.jar" the-ultimate-guide-to-team-survey-questions.pdf cat 2-end output the-ultimate-guide-to-team-survey-questions-FINAL.pdf
+
+java -jar "/usr/local/Cellar/pdftk-java/3.3.3/libexec/pdftk-all.jar" the-ultimate-guide-to-team-survey-questions-hardcover.pdf cat 2-end output the-ultimate-guide-to-team-survey-questions-hardcover-FINAL.pdf

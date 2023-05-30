@@ -10,7 +10,7 @@ But not all surveys are created equal. To be truly effective, team surveys need 
 
 Whether you're a team leader, an HR professional, or an executive looking to improve your organization's performance, this book is the ultimate resource for unlocking the power of your team. So let's get started!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 Team survey

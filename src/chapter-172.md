@@ -1,5 +1,4 @@
-How Effectively Does The Team Handle Changes Or Shifts In Company Strategy Or Direction?
-===============================================================================================================
+
 
 How to Answer
 -------------

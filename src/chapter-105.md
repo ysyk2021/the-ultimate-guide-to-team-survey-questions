@@ -1,5 +1,4 @@
-On A Scale Of 1-10, How Well Do Team Members Collaborate With One Another?
-=================================================================================================
+
 
 Collaboration is critical for achieving team goals and fostering a positive work environment. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

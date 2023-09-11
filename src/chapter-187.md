@@ -1,5 +1,4 @@
-How Well Does The Team Address And Resolve Issues Related To Employee Turnover Or Retention?
-===================================================================================================================
+
 
 Employee turnover and retention can have a significant impact on team performance and productivity. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

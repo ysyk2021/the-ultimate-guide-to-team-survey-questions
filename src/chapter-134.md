@@ -1,5 +1,4 @@
-How Well Does The Team Encourage Ongoing Learning And Development Among Members?
-=======================================================================================================
+
 
 How to Answer
 -------------

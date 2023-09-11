@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Collaboration And Teamwork Within The Team?
-==========================================================================================================
+
 
 How to Answer
 -------------

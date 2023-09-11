@@ -1,5 +1,4 @@
-How Well Does The Team Manage And Allocate Its Physical Resources, Such As Office Space Or Equipment?
-============================================================================================================================
+
 
 How to Answer
 -------------

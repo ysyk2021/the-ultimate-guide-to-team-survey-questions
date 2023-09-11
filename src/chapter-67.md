@@ -1,5 +1,4 @@
-What Feedback Do You Have On Our Team's Decision-making Process?
-=======================================================================================
+
 
 Asking team members for feedback on the team's decision-making process is crucial in identifying areas of improvement and ensuring that decisions are made effectively and efficiently. Here's how to answer this survey question and some sample answers for inspiration.
 

@@ -1,5 +1,4 @@
-How Well Does The Team Manage And Prioritize Its Projects?
-=================================================================================
+
 
 How to Answer
 -------------

@@ -1,5 +1,4 @@
-How Well Does The Team Handle And Resolve Issues Related To Workload And Burnout?
-========================================================================================================
+
 
 How to Answer
 -------------

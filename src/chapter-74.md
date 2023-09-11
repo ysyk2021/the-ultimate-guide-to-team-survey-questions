@@ -1,5 +1,4 @@
-What Impact Do You Think Our Team Has On The Broader Organization?
-=========================================================================================
+
 
 Asking team members for feedback on the impact of the team on the broader organization is crucial in ensuring that individuals understand the importance and value of their work. Here's how to answer this survey question and some sample answers for inspiration.
 

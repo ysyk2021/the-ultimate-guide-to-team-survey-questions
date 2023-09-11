@@ -1,5 +1,4 @@
-How Do You Feel About The Level Of Transparency On Our Team?
-===================================================================================
+
 
 Asking team members for feedback on the level of transparency is crucial in promoting open communication and trust within the team. Here's how to answer this survey question and some sample answers for inspiration.
 

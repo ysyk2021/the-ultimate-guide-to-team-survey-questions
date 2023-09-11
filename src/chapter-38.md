@@ -1,5 +1,4 @@
-What Feedback Do You Have On Our Team's Feedback Process?
-================================================================================
+
 
 Asking team members for feedback on the team's feedback process is crucial in ensuring that everyone feels heard and valued. Here's how to answer this survey question and some sample answers for inspiration.
 

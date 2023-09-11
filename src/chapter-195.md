@@ -1,5 +1,4 @@
-How Well Does The Team Recognize And Leverage The Strengths And Skills Of Individual Members?
-====================================================================================================================
+
 
 How to Answer
 -------------

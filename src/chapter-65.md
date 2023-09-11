@@ -1,5 +1,4 @@
-What Changes Could Be Made To Improve The Team's Work Processes?
-=======================================================================================
+
 
 Asking team members for feedback on how to improve work processes is crucial in ensuring that the team is operating efficiently and effectively. Here's how to answer this survey question and some sample answers for inspiration.
 

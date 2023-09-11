@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Transparency In Decision-making Processes Within The Team?
-=========================================================================================================================
+
 
 How to Answer
 -------------

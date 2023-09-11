@@ -1,4 +1,4 @@
-# Conclusion
+
 
 Effective communication and collaboration are critical components of any successful team. However, achieving these goals can be challenging without clear direction and feedback on the team's processes and dynamics. Team surveys are a powerful tool for gathering this feedback and identifying areas for improvement.
 

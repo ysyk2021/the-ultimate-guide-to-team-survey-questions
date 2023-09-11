@@ -1,5 +1,4 @@
-How Frequently Do You Feel Recognized Or Appreciated For Your Contributions To The Team?
-===============================================================================================================
+
 
 How to Answer
 -------------

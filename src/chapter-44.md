@@ -1,5 +1,4 @@
-What Are The Biggest Challenges Facing Our Team Right Now?
-=================================================================================
+
 
 Asking team members for feedback on the biggest challenges facing the team is crucial in identifying areas for improvement and creating a more effective work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

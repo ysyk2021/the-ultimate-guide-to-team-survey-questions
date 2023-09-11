@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Its Time And Priorities?
-=====================================================================================================
+
 
 How to Answer
 -------------

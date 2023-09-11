@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Stress And Pressure?
-=================================================================================================
+
 
 How to Answer
 -------------

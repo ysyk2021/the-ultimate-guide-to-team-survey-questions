@@ -1,5 +1,4 @@
-How Well Does The Team Identify And Capitalize On Emerging Opportunities?
-================================================================================================
+
 
 How to Answer
 -------------

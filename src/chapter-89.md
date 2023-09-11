@@ -1,5 +1,4 @@
-How Often Do You Feel Included In Important Decisions Made By The Team?
-==============================================================================================
+
 
 How to Answer
 -------------

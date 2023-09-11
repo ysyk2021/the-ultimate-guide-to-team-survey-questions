@@ -1,5 +1,4 @@
-In Your Opinion, How Well Does The Team Balance Individual Needs And Interests With Those Of The Collective Group?
-=========================================================================================================================================
+
 
 How to Answer
 -------------

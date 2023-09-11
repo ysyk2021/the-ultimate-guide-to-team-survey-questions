@@ -1,5 +1,4 @@
-What Do You Think Is The Most Important Factor In Maintaining A Positive Team Culture?
-=============================================================================================================
+
 
 How to Answer
 -------------

@@ -1,5 +1,4 @@
-How Well Does The Team Address And Resolve Issues Related To Inaccurate Or Incomplete Information?
-=========================================================================================================================
+
 
 Dealing with inaccurate or incomplete information can be a challenge for any team. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

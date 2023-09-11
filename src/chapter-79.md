@@ -1,5 +1,4 @@
-What Changes Would You Recommend To Improve The Team's Productivity?
-===========================================================================================
+
 
 How to Answer
 -------------

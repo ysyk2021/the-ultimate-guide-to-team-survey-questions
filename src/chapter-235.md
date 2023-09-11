@@ -1,5 +1,4 @@
-How Well Does The Team Encourage And Support Ongoing Social Responsibility And Ethical Behavior Among Members?
-=====================================================================================================================================
+
 
 How to Answer
 -------------

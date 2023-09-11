@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Environmental Resources, Such As Energy Or Materials?
-===============================================================================================================================
+
 
 How to Answer
 -------------

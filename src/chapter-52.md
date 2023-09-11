@@ -1,5 +1,4 @@
-How Well Do The Team's Goals Align With Your Personal Goals?
-===================================================================================
+
 
 How to Answer
 -------------

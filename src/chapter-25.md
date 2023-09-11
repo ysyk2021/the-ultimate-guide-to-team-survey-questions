@@ -1,5 +1,4 @@
-What Role Does Feedback Play In Our Team's Success?
-==========================================================================
+
 
 Asking team members for feedback on the role that feedback plays in the team's success is crucial in ensuring that individuals understand the importance of giving and receiving feedback in a constructive manner. Here's how to answer this survey question and some sample answers for inspiration.
 

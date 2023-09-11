@@ -1,5 +1,4 @@
-What Areas Do You Think The Team Could Improve In?
-=========================================================================
+
 
 Asking team members about areas for improvement is a crucial step in identifying and addressing problems within a team. Here's how to answer this survey question and some sample answers for inspiration.
 

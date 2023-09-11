@@ -1,5 +1,4 @@
-How Well Does The Team Identify And Address Potential Obstacles To Achieving Its Goals?
-==============================================================================================================
+
 
 How to Answer
 -------------

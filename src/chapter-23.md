@@ -1,5 +1,4 @@
-How Can We Better Assess And Manage Risk As A Team?
-==========================================================================
+
 
 Asking team members for feedback on ways to improve risk assessment and management is crucial in creating a more proactive and resilient team. Here's how to answer this survey question and some sample answers for inspiration.
 

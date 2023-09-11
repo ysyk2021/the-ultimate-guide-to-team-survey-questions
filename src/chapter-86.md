@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Work-life Balance On The Team?
-=============================================================================================
+
 
 How to Answer
 -------------

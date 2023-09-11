@@ -1,5 +1,4 @@
-How Would You Define The Team's Culture?
-===============================================================
+
 
 How to Answer
 -------------

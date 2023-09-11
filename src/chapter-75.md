@@ -1,5 +1,4 @@
-What Role Does Diversity And Inclusion Play In Our Team's Success?
-=========================================================================================
+
 
 Asking team members for feedback on the role of diversity and inclusion in the team's success is crucial in promoting a more diverse and inclusive work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

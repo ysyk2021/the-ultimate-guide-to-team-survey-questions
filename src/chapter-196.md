@@ -1,5 +1,4 @@
-In Your Opinion, How Effective Are The Team Members At Resolving Conflicts And Disagreements?
-====================================================================================================================
+
 
 How to Answer
 -------------

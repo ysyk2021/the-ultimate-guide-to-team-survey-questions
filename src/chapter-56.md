@@ -1,5 +1,4 @@
-How Do You Feel About The Level Of Recognition For Good Work?
-====================================================================================
+
 
 Asking team members for feedback on the level of recognition for good work is crucial in creating a more engaged and motivated workforce. Here's how to answer this survey question and some sample answers for inspiration.
 

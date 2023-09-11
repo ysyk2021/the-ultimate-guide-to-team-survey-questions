@@ -1,5 +1,4 @@
-How Well Does The Team Ensure That All Members Have Clear Roles And Responsibilities?
-============================================================================================================
+
 
 How to Answer
 -------------

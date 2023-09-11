@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Its Relationships With Regulatory Bodies Or Industry Associations?
-===============================================================================================================================================
+
 
 Effective management of relationships with regulatory bodies or industry associations can help to ensure compliance and promote positive industry reputation. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

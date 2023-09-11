@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Transparency And Clarity In The Team's Policies And Procedures?
-==============================================================================================================================
+
 
 Transparency and clarity in policies and procedures are crucial to ensure that everyone in the team understands their roles, responsibilities, and expectations. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

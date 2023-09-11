@@ -1,5 +1,4 @@
-How Well Does The Team Build And Maintain Relationships With Internal Stakeholders And Departments?
-==========================================================================================================================
+
 
 Building and maintaining positive relationships with internal stakeholders and departments is essential for effective collaboration and achieving team objectives. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

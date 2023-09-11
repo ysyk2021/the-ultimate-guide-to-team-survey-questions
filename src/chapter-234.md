@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Communication And Coordination Between Different Teams Or Departments?
-=====================================================================================================================================
+
 
 Effective communication and coordination between different teams or departments is essential for achieving team goals. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

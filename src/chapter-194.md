@@ -1,5 +1,4 @@
-How Well Does The Team Manage And Mitigate Potential Ethical Issues Or Conflicts Of Interest?
-====================================================================================================================
+
 
 Managing and mitigating potential ethical issues or conflicts of interest is crucial for maintaining trust and integrity within a team. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

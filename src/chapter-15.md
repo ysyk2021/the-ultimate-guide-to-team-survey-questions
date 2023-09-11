@@ -1,5 +1,4 @@
-What Is Your Preferred Method Of Communication?
-======================================================================
+
 
 Asking team members for their preferred method of communication is crucial in ensuring effective communication and collaboration within the team. Here's how to answer this survey question and some sample answers for inspiration.
 

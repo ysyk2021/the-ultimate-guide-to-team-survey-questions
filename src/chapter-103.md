@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Accountability Among Team Members?
-=================================================================================================
+
 
 How to Answer
 -------------

@@ -1,5 +1,4 @@
-How Well Does The Team Ensure That All Members Are Aligned With Its Goals And Objectives?
-================================================================================================================
+
 
 How to Answer
 -------------

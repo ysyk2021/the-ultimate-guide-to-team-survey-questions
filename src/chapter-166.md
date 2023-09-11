@@ -1,5 +1,4 @@
-How Well Does The Team Foster A Culture Of Transparency And Openness Among Its Members?
-==============================================================================================================
+
 
 How to Answer
 -------------

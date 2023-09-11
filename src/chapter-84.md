@@ -1,5 +1,4 @@
-What Changes Could Be Made To Improve Work-life Balance For Our Team?
-============================================================================================
+
 
 Asking team members for feedback on how to improve work-life balance is crucial in promoting a healthy and productive work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

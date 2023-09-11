@@ -1,5 +1,4 @@
-What Do You Think Is The Most Important Component Of Effective Teamwork?
-===============================================================================================
+
 
 Asking team members for feedback on the most important component of effective teamwork is crucial in identifying the factors that contribute to a successful and productive work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

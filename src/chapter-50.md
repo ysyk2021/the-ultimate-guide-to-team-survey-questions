@@ -1,5 +1,4 @@
-How Do You Feel About Our Team's Ability To Adapt To Change?
-===================================================================================
+
 
 Asking team members for feedback on the team's ability to adapt to change is crucial in ensuring that the team can remain agile and responsive to new challenges. Here's how to answer this survey question and some sample answers for inspiration.
 

@@ -1,4 +1,4 @@
-# What do You Think Could be Improved in our Team's Decision-Making Process?
+
 
 Effective decision-making is crucial to the success of any team. However, sometimes the decision-making process can become inefficient or ineffective, leading to frustration and missed opportunities. Asking the question "What do you think could be improved in our team's decision-making process?" in a survey can help identify ways to streamline the process, improve communication, and achieve better outcomes.
 

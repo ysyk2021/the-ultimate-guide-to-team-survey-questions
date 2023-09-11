@@ -1,5 +1,4 @@
-In Your Opinion, How Effective Are The Team Members At Holding Each Other Accountable?
-=============================================================================================================
+
 
 How to Answer
 -------------

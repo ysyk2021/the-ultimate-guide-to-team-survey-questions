@@ -1,5 +1,4 @@
-How Well Does The Team Encourage And Support Diversity And Inclusion Among Members?
-==========================================================================================================
+
 
 How to Answer
 -------------

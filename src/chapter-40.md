@@ -1,5 +1,4 @@
-How Can We Better Celebrate Team Successes And Milestones?
-=================================================================================
+
 
 Asking team members for feedback on ways to improve celebrating team successes and milestones is crucial in creating a positive work environment and boosting morale. Here's how to answer this survey question and some sample answers for inspiration.
 

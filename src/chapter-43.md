@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Manage Its Workload?
-=================================================================================
+
 
 How to Answer
 -------------

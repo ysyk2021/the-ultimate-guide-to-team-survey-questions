@@ -1,4 +1,4 @@
-# What Impact Do You Think Technology Has on Our Team?
+
 
 As technology advances and becomes more integrated into our work lives, it's important to assess its impact on your team. Asking the question "What impact do you think technology has on our team?" in a survey can provide valuable insights into how your colleagues perceive and interact with technology in the workplace.
 

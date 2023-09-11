@@ -1,5 +1,4 @@
-How Do You Feel About The Team's Meeting Structure?
-==========================================================================
+
 
 Asking team members for feedback on the team's meeting structure is crucial in creating more effective and productive meetings. Here's how to answer this survey question and some sample answers for inspiration.
 

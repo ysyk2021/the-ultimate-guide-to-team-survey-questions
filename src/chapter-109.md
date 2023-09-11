@@ -1,5 +1,4 @@
-Do You Feel That The Team Has The Resources Necessary To Achieve Its Goals?
-==================================================================================================
+
 
 How to Answer
 -------------

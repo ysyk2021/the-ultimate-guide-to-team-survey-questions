@@ -1,5 +1,4 @@
-How Well Does The Team Balance Individual Contributions With The Collective Group's Needs?
-=================================================================================================================
+
 
 Balancing individual contributions with the collective group's needs is a critical aspect of teamwork and can impact the overall success of a team. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

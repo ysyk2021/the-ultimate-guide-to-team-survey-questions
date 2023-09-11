@@ -1,5 +1,4 @@
-How Well Does The Team Manage And Mitigate Risks Related To Compliance Or Legal Issues?
-==============================================================================================================
+
 
 How to Answer
 -------------

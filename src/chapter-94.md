@@ -1,5 +1,4 @@
-What Skills Do You Think Our Team Needs To Develop To Stay Competitive?
-==============================================================================================
+
 
 Asking team members for feedback on the skills needed to stay competitive is crucial in ensuring that the team stays relevant and effective. Here's how to answer this survey question and some sample answers for inspiration.
 

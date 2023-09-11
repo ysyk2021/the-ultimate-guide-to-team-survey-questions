@@ -1,5 +1,4 @@
-Do You Feel Like You Have Enough Autonomy In Your Work?
-==============================================================================
+
 
 Asking team members for feedback on their level of autonomy in their work is crucial in creating a more engaged and empowered workforce. Here's how to answer this survey question and some sample answers for inspiration.
 

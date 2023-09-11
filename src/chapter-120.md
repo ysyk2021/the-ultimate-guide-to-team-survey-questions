@@ -1,5 +1,4 @@
-How Often Do You Feel That The Team's Work Is Aligned With Its Mission/vision?
-=====================================================================================================
+
 
 How to Answer
 -------------

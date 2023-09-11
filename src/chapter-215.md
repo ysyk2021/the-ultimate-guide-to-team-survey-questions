@@ -1,5 +1,4 @@
-On A Scale Of 1-10, How Comfortable Are You Giving And Receiving Feedback From Your Manager/leader?
-==========================================================================================================================
+
 
 Giving and receiving feedback is crucial for personal and professional development. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

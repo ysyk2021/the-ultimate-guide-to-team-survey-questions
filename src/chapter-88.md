@@ -1,5 +1,4 @@
-What Feedback Do You Have On Our Team's Recognition And Reward System?
-=============================================================================================
+
 
 Asking team members for feedback on the team's recognition and reward system is crucial in creating a more engaged and motivated workforce. Here's how to answer this survey question and some sample answers for inspiration.
 

@@ -1,5 +1,4 @@
-How Do You Feel About The Team's Recognition And Reward System?
-======================================================================================
+
 
 Asking team members for feedback on the current recognition and reward system is crucial in creating a positive work environment and boosting morale. Here's how to answer this survey question and some sample answers for inspiration.
 

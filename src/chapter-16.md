@@ -1,5 +1,4 @@
-How Can We Better Prioritize Tasks And Projects?
-=======================================================================
+
 
 Asking team members for feedback on how to better prioritize tasks and projects is crucial in creating a more efficient and productive work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

@@ -1,5 +1,4 @@
-How Well Do You Believe The Team Is Led By Its Current Manager/leader?
-=============================================================================================
+
 
 How to Answer
 -------------

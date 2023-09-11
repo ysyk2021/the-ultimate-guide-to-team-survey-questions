@@ -1,5 +1,4 @@
-How Do You Feel About Our Team's Work Environment?
-=========================================================================
+
 
 Asking team members for feedback on the team's work environment is crucial in creating a positive and productive workplace. Here's how to answer this survey question and some sample answers for inspiration.
 

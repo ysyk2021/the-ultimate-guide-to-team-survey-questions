@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Autonomy Given To Team Members In Their Work?
-============================================================================================================
+
 
 Autonomy is an essential aspect of employee engagement and can have a significant impact on job satisfaction and productivity. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

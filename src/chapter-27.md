@@ -1,5 +1,4 @@
-What Do You Think Are The Team's Greatest Strengths?
-===========================================================================
+
 
 Asking team members for feedback on the team's greatest strengths is crucial in identifying areas of success and building upon them. Here's how to answer this survey question and some sample answers for inspiration.
 

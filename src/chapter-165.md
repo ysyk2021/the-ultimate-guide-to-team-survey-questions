@@ -1,5 +1,4 @@
-How Well Does The Team Foster A Culture Of Creativity And Innovation Among Its Members?
-==============================================================================================================
+
 
 How to Answer
 -------------

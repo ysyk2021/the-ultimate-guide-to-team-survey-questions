@@ -1,5 +1,4 @@
-How Would You Rate Your Job Satisfaction?
-================================================================
+
 
 How to Answer
 -------------

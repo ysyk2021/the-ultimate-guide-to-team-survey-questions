@@ -1,5 +1,4 @@
-What Are Your Career Goals And How Can Our Team Support Them?
-====================================================================================
+
 
 Asking team members about their career goals and how the team can support them is crucial in creating a more engaged and motivated workforce. Here's how to answer this survey question and some sample answers for inspiration.
 

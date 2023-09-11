@@ -1,5 +1,4 @@
-How Can We Better Encourage And Support Creativity On The Team?
-======================================================================================
+
 
 Asking team members for feedback on how to better encourage and support creativity on the team is crucial in fostering innovation and growth. Here's how to answer this survey question and some sample answers for inspiration.
 

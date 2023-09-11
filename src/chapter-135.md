@@ -1,5 +1,4 @@
-How Well Does The Team Foster A Sense Of Trust And Mutual Respect Among Members?
-=======================================================================================================
+
 
 How to Answer
 -------------

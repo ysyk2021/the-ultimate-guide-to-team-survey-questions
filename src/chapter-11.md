@@ -1,5 +1,4 @@
-What Do You Think Are The Team's Core Values?
-====================================================================
+
 
 Asking team members for feedback on the team's core values is crucial in creating a shared understanding of what the team stands for and how it operates. Here's how to answer this survey question and some sample answers for inspiration.
 

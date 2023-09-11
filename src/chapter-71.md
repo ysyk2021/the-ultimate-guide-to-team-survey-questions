@@ -1,5 +1,4 @@
-How Do You Feel About The Level Of Autonomy You Have In Your Work?
-=========================================================================================
+
 
 Asking team members for feedback on the level of autonomy they have in their work is crucial in ensuring that individuals feel empowered and motivated to contribute to the team's success. Here's how to answer this survey question and some sample answers for inspiration.
 

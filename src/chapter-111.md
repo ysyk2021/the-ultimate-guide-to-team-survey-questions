@@ -1,5 +1,4 @@
-How Well Does The Team Manage And Prioritize Its Deadlines And Deliverables?
-===================================================================================================
+
 
 How to Answer
 -------------

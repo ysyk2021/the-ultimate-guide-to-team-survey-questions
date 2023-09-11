@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Manage Its Projects Based On Their Impact Or ROI?
-==============================================================================================================
+
 
 Prioritizing and managing projects based on their impact or ROI is essential for achieving strategic objectives and maximizing return on investment. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

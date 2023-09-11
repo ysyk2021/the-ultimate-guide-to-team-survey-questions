@@ -1,5 +1,4 @@
-In Your Opinion, How Effective Are The Team Members At Mitigating Risks And Potential Challenges?
-========================================================================================================================
+
 
 How to Answer
 -------------

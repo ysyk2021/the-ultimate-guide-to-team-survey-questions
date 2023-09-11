@@ -1,5 +1,4 @@
-How Can We Better Ensure That Team Members Are Working Efficiently?
-==========================================================================================
+
 
 Asking team members for feedback on how to better ensure that they are working efficiently is crucial in identifying areas of improvement and increasing productivity in the workplace. Here's how to answer this survey question and some sample answers for inspiration.
 

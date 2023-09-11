@@ -1,5 +1,4 @@
-What Creative Ideas Do You Have For Improving Team Morale?
-=================================================================================
+
 
 Asking team members for creative ideas to improve team morale is crucial in promoting a positive and productive work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

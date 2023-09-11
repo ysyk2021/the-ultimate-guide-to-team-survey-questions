@@ -1,5 +1,4 @@
-How Can We Better Support Each Other During Times Of High Stress Or Workload?
-====================================================================================================
+
 
 Asking team members for feedback on how to better support each other during times of high stress or workload is crucial in ensuring that individuals are able to manage their workload effectively and feel supported by their colleagues. Here's how to answer this survey question and some sample answers for inspiration.
 

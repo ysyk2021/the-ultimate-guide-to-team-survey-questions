@@ -1,5 +1,4 @@
-How Often Do You Receive Feedback On Your Work From Other Team Members?
-==============================================================================================
+
 
 How to Answer
 -------------

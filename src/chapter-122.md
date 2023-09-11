@@ -1,5 +1,4 @@
-How Well Does The Team Balance Its Focus On Short-term Versus Long-term Goals?
-=====================================================================================================
+
 
 Balancing short-term and long-term goals is critical for achieving sustained success in any team. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

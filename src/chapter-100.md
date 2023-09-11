@@ -1,5 +1,4 @@
-How Can We Better Support Team Members' Personal And Professional Growth?
-================================================================================================
+
 
 Asking team members for feedback on how the team can better support their personal and professional growth is crucial in creating a more effective work environment that benefits both the team and individual team members. Here's how to answer this survey question and some sample answers for inspiration.
 

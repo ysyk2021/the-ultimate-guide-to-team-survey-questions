@@ -1,5 +1,4 @@
-How Do You Feel About The Workload On Our Team?
-======================================================================
+
 
 Asking team members for feedback on the workload is crucial in ensuring that everyone's workload is manageable and sustainable. Here's how to answer this survey question and some sample answers for inspiration.
 

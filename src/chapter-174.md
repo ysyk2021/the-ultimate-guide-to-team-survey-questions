@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Supply Chain And Logistics Resources?
-===============================================================================================================
+
 
 How to Answer
 -------------

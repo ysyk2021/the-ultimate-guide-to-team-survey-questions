@@ -1,5 +1,4 @@
-What Do You Think Are The Characteristics Of A High-performing Team?
-===========================================================================================
+
 
 Asking team members about the characteristics of a high-performing team can help to identify areas for improvement and establish goals for success. Here's how to answer this survey question and some sample answers for inspiration.
 

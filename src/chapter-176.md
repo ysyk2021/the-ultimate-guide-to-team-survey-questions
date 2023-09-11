@@ -1,5 +1,4 @@
-How Well Does The Team Address And Resolve Issues Related To Workplace Culture Or Morale?
-================================================================================================================
+
 
 How to Answer
 -------------

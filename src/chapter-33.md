@@ -1,5 +1,4 @@
-In Your Opinion, What Are The Team's Biggest Weaknesses?
-===============================================================================
+
 
 How to Answer
 -------------

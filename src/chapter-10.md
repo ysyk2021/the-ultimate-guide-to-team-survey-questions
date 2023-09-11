@@ -1,5 +1,4 @@
-How Can We Better Integrate New Team Members?
-====================================================================
+
 
 Asking team members for feedback on ways to improve the integration of new team members is crucial in creating a welcoming and supportive work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

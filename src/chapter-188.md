@@ -1,5 +1,4 @@
-How Well Does The Team Balance Its Focus On Performance Metrics Versus Qualitative Measures?
-===================================================================================================================
+
 
 How to Answer
 -------------

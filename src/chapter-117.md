@@ -1,5 +1,4 @@
-How Can We Better Ensure That Everyone On The Team Feels Valued And Respected?
-=====================================================================================================
+
 
 Asking team members for feedback on how to better ensure that everyone on the team feels valued and respected is crucial in promoting a positive and inclusive work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

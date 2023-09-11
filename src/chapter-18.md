@@ -1,5 +1,4 @@
-What Role Does Trust Play In Our Team's Success?
-=======================================================================
+
 
 Asking team members for feedback on the role of trust in the team's success is crucial in identifying the importance of building strong relationships and fostering a positive work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

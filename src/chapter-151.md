@@ -1,5 +1,4 @@
-How Well Does The Team Encourage And Support Creativity And Innovation Among Members?
-============================================================================================================
+
 
 How to Answer
 -------------

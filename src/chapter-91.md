@@ -1,5 +1,4 @@
-What Changes Could Be Made To Improve The Team's Overall Effectiveness?
-==============================================================================================
+
 
 Asking team members for feedback on how to improve the team's overall effectiveness is crucial in identifying areas for improvement and creating a more efficient work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

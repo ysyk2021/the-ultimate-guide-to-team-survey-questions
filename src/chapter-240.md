@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Transparency And Accountability In The Team's Decision-making Processes?
-=======================================================================================================================================
+
 
 Transparency and accountability in decision-making processes are crucial for building trust and ensuring that everyone is aligned towards achieving team goals. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

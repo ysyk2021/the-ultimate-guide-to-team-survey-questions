@@ -1,5 +1,4 @@
-What Challenges Do You Think Our Team Will Face In The Next Year?
-========================================================================================
+
 
 Asking team members for feedback on potential challenges that the team may face in the next year is crucial in identifying potential obstacles and developing strategies to overcome them. Here's how to answer this survey question and some sample answers for inspiration.
 

@@ -1,5 +1,4 @@
-How Well Does The Team Balance Its Focus On Financial Performance Versus Social Impact Or Mission-driven Goals?
-======================================================================================================================================
+
 
 How to Answer
 -------------

@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Relationships With Community Organizations Or Groups?
-==================================================================================================================================
+
 
 How to Answer
 -------------

@@ -1,5 +1,4 @@
-How Comfortable Are You Providing Constructive Feedback To Other Team Members?
-=====================================================================================================
+
 
 How to Answer
 -------------

@@ -1,5 +1,4 @@
-How Well Does The Team Adapt To Change And Unexpected Challenges?
-========================================================================================
+
 
 How to Answer
 -------------

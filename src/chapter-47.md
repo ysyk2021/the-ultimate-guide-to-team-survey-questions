@@ -1,5 +1,4 @@
-How Do You Feel About The Level Of Support From Management?
-==================================================================================
+
 
 Asking team members for feedback on the level of support from management is crucial in creating a positive work environment and improving employee satisfaction. Here's how to answer this survey question and some sample answers for inspiration.
 

@@ -1,5 +1,4 @@
-What Do You Think Is The Most Important Thing For Our Team To Focus On Right Now?
-========================================================================================================
+
 
 Asking team members for feedback on what the team should focus on can help prioritize efforts and create a more effective work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

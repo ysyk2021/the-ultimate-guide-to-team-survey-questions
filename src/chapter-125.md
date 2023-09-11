@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Talent And Human Resources?
-=====================================================================================================
+
 
 How to Answer
 -------------

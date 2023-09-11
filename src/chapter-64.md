@@ -1,5 +1,4 @@
-How Do You Feel About The Pace And Speed Of Work On Our Team?
-====================================================================================
+
 
 Asking team members for feedback on the pace and speed of work is crucial in ensuring that individuals are not overwhelmed or underutilized in the workplace. Here's how to answer this survey question and some sample answers for inspiration.
 

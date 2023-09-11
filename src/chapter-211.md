@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Its Relationships With Customers Or Clients?
-=========================================================================================================================
+
 
 How to Answer
 -------------

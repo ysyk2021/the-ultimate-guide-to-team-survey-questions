@@ -1,5 +1,4 @@
-What Changes Could Be Made To Improve Collaboration Between Different Teams Or Departments?
-==================================================================================================================
+
 
 Asking team members for feedback on how to improve collaboration between different teams or departments is crucial in creating a more cohesive and productive organization. Here's how to answer this survey question and some sample answers for inspiration.
 

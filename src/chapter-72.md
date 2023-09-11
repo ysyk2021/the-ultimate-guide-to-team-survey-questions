@@ -1,5 +1,4 @@
-How Effective Are Team Meetings In Achieving Their Intended Goals?
-=========================================================================================
+
 
 Team meetings are a vital aspect of communication and collaboration within a team. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

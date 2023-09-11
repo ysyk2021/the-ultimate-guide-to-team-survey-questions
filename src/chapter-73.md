@@ -1,5 +1,4 @@
-How Well Does The Team Balance Its Short-term And Long-term Goals?
-=========================================================================================
+
 
 How to Answer
 -------------

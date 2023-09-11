@@ -1,5 +1,4 @@
-How Can We Better Measure And Track Customer Satisfaction?
-=================================================================================
+
 
 Asking team members for feedback on how to better measure and track customer satisfaction is crucial in ensuring that the team is meeting the needs and expectations of customers. Here's how to answer this survey question and some sample answers for inspiration.
 

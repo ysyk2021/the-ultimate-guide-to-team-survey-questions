@@ -1,5 +1,4 @@
-How Can We Better Collaborate As A Team?
-===============================================================
+
 
 Asking team members for feedback on how to better collaborate as a team is crucial in ensuring that individuals are working together effectively and efficiently towards common goals. Here's how to answer this survey question and some sample answers for inspiration.
 

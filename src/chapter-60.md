@@ -1,5 +1,4 @@
-How Can We Improve Our Ability To Innovate And Try New Things?
-=====================================================================================
+
 
 Asking team members for feedback on how to improve the ability to innovate and try new things is crucial in ensuring that individuals feel empowered to take risks and contribute to the team's success. Here's how to answer this survey question and some sample answers for inspiration.
 

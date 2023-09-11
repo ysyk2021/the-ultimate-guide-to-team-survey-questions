@@ -1,5 +1,4 @@
-How Well Does The Team Foster A Culture Of Continuous Improvement And Growth?
-====================================================================================================
+
 
 How to Answer
 -------------

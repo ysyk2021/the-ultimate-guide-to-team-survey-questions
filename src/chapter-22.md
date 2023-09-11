@@ -1,5 +1,4 @@
-Do You Feel That The Team Communicates Effectively?
-==========================================================================
+
 
 Effective communication is crucial for ensuring that team members are working together towards achieving common goals and objectives. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

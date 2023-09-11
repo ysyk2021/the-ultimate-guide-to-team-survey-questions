@@ -1,5 +1,4 @@
-What Role Do You See Yourself Playing In Our Team's Success?
-===================================================================================
+
 
 Asking team members for feedback on the role they see themselves playing in the team's success is crucial in ensuring that everyone is aligned and working towards common goals. Here's how to answer this survey question and some sample answers for inspiration.
 

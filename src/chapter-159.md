@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Research And Development Resources?
-=============================================================================================================
+
 
 How to Answer
 -------------

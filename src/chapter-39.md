@@ -1,5 +1,4 @@
-What Feedback Do You Have On Our Team's Management Style?
-================================================================================
+
 
 Asking team members for feedback on the team's management style is crucial in ensuring that the team is being led effectively and efficiently. Here's how to answer this survey question and some sample answers for inspiration.
 

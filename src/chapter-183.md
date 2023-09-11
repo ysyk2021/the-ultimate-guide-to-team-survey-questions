@@ -1,5 +1,4 @@
-How Well Does The Team Manage And Mitigate Risks Related To Cybersecurity Or Data Privacy?
-=================================================================================================================
+
 
 How to Answer
 -------------

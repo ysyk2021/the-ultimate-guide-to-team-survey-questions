@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Legal And Compliance Resources?
-=========================================================================================================
+
 
 How to Answer
 -------------

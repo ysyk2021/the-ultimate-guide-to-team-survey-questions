@@ -1,5 +1,4 @@
-How Well Do The Team's Policies And Procedures Support Its Goals And Objectives?
-=======================================================================================================
+
 
 How to Answer
 -------------

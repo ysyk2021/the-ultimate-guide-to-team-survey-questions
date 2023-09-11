@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Social Media And Online Presence Resources?
-=====================================================================================================================
+
 
 How to Answer
 -------------

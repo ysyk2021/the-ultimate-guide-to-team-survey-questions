@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Diversity And Inclusion Within The Team?
-=======================================================================================================
+
 
 How to Answer
 -------------

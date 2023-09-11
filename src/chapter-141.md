@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Resources To Achieve Its Goals?
-=========================================================================================================
+
 
 How to Answer
 -------------

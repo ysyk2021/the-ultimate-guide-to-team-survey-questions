@@ -1,5 +1,4 @@
-What Motivates You To Come To Work Each Day?
-===================================================================
+
 
 Asking team members for feedback on what motivates them to come to work each day is crucial in creating a more engaged and productive workforce. Here's how to answer this survey question and some sample answers for inspiration.
 

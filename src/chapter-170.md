@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Handle Unexpected Crises Or Emergencies?
-==============================================================================================================
+
 
 How to Answer
 -------------

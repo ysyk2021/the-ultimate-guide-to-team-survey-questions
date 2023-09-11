@@ -1,5 +1,4 @@
-How Well Does The Team Manage Conflicts And Disagreements Among Members?
-===============================================================================================
+
 
 How to Answer
 -------------

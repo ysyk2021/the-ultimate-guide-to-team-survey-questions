@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Technology And Digital Resources?
-===========================================================================================================
+
 
 How to Answer
 -------------

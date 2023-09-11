@@ -1,5 +1,4 @@
-How Do You Feel About The Level Of Collaboration Between Different Departments Or Teams?
-===============================================================================================================
+
 
 How to Answer
 -------------

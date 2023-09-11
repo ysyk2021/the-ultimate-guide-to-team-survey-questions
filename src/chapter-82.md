@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Resources To Projects?
-============================================================================================
+
 
 How to Answer
 -------------

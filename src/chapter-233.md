@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Relationships With Investors Or Other Funding Sources?
-===================================================================================================================================
+
 
 How to Answer
 -------------

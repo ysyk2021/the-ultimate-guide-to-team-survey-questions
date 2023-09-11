@@ -1,5 +1,4 @@
-What Impact Do You Think Our Team Has On Our Customers?
-==============================================================================
+
 
 How to Answer
 -------------

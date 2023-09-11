@@ -1,5 +1,4 @@
-What Feedback Do You Have On Our Team Meetings?
-======================================================================
+
 
 Asking team members for feedback on team meetings is crucial in identifying areas for improvement and creating more effective and productive meetings. Here's how to answer this survey question and some sample answers for inspiration.
 

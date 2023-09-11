@@ -1,5 +1,4 @@
-How Can We Better Recognize And Reward Team Members?
-===========================================================================
+
 
 Asking team members for feedback on ways to improve recognition and rewards is crucial in creating a positive work environment and boosting morale. Here's how to answer this survey question and some sample answers for inspiration.
 

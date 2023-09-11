@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Its Relationships With Other Teams And Departments?
-================================================================================================================================
+
 
 How to Answer
 -------------

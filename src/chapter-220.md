@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Relationships With Media Outlets Or Journalists?
-=============================================================================================================================
+
 
 How to Answer
 -------------

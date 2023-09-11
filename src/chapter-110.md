@@ -1,5 +1,4 @@
-How Can We Better Support Team Members During Times Of Change Or Transition?
-===================================================================================================
+
 
 Asking team members for feedback on how to better support them during times of change or transition is crucial in ensuring that they feel supported and valued. Here's how to answer this survey question and some sample answers for inspiration.
 

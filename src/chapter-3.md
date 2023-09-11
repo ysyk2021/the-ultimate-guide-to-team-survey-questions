@@ -1,5 +1,4 @@
-How Do You Balance Competing Priorities?
-===============================================================
+
 
 Asking team members for feedback on how they balance competing priorities is crucial in ensuring that individuals are able to effectively manage their workload and achieve their goals. Here's how to answer this survey question and some sample answers for inspiration.
 

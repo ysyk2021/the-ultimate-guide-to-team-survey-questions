@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Autonomy And Flexibility In Your Work?
-=====================================================================================================
+
 
 How to Answer
 -------------

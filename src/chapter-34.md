@@ -1,5 +1,4 @@
-In Your Opinion, What Are The Team's Greatest Strengths?
-===============================================================================
+
 
 How to Answer
 -------------

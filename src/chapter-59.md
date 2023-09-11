@@ -1,5 +1,4 @@
-What Role Do Ethics And Integrity Play In Our Team's Success?
-====================================================================================
+
 
 Asking team members for feedback on the role of ethics and integrity in the team's success is crucial in ensuring that individuals understand the importance of these values in the workplace. Here's how to answer this survey question and some sample answers for inspiration.
 

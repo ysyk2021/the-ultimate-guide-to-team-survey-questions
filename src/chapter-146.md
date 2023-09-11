@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Capital And Financial Resources?
-==========================================================================================================
+
 
 Effective management of capital and financial resources is critical for the success of any team. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

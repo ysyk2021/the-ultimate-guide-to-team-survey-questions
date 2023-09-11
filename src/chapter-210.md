@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Communicate Its Impact And Results To Stakeholders?
-=========================================================================================================================
+
 
 Effective communication of a team's impact and results is crucial for building trust and support from stakeholders. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

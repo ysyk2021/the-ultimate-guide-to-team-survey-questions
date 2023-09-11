@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Relationships With Competitors Or Other External Threats?
-======================================================================================================================================
+
 
 How to Answer
 -------------

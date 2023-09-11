@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Philanthropic Or Charitable Resources?
-================================================================================================================
+
 
 Prioritizing and allocating philanthropic or charitable resources is important for demonstrating corporate social responsibility and making a positive impact in the community. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

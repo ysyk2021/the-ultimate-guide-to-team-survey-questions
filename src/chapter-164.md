@@ -1,5 +1,4 @@
-How Well Does The Team Balance Its Focus On Short-term Versus Long-term Sustainability?
-==============================================================================================================
+
 
 How to Answer
 -------------

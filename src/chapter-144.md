@@ -1,5 +1,4 @@
-How Well Does The Team Build And Maintain Relationships With External Stakeholders?
-==========================================================================================================
+
 
 How to Answer
 -------------

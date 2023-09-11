@@ -1,5 +1,4 @@
-How Can We Better Manage And Prioritize Competing Priorities?
-====================================================================================
+
 
 How to Answer
 -------------

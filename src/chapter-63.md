@@ -1,5 +1,4 @@
-What Do You Think Our Team's Biggest Accomplishments Have Been?
-======================================================================================
+
 
 Asking team members for feedback on the team's biggest accomplishments is crucial in recognizing and celebrating individual and collective successes. Here's how to answer this survey question and some sample answers for inspiration.
 

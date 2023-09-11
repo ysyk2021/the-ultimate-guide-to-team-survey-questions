@@ -1,5 +1,4 @@
-What Do You Think Are The Top Priorities For Our Team Right Now?
-=======================================================================================
+
 
 Asking team members for feedback on the top priorities for the team is crucial in identifying areas of focus and creating a more effective work environment. Here's how to answer this survey question and some sample answers for inspiration.
 

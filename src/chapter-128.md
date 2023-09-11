@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Sales And Revenue Resources?
-======================================================================================================
+
 
 How to Answer
 -------------

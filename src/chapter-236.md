@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Guidance And Mentorship Provided By Senior Leaders In The Organization?
-======================================================================================================================================
+
 
 Effective guidance and mentorship from senior leaders can help team members to develop their skills and achieve their career goals. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

@@ -1,5 +1,4 @@
-How Do You Feel About Our Team's Level Of Accountability?
-================================================================================
+
 
 Asking team members for feedback on the team's level of accountability is crucial in creating a culture of responsibility and ownership. Here's how to answer this survey question and some sample answers for inspiration.
 

@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Recognition And Rewards Given To Team Members?
-=============================================================================================================
+
 
 How to Answer
 -------------

@@ -1,5 +1,4 @@
-How Do You Feel About The Level Of Cross-functional Collaboration On Our Team?
-=====================================================================================================
+
 
 How to Answer
 -------------

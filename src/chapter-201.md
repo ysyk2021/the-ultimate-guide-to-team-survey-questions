@@ -1,5 +1,4 @@
-How Well Does The Team Manage And Leverage Its Relationships With External Partners And Vendors?
-=======================================================================================================================
+
 
 How to Answer
 -------------

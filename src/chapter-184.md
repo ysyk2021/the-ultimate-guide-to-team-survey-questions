@@ -1,5 +1,4 @@
-On A Scale Of 1-10, How Comfortable Are You Sharing Your Opinions And Ideas With The Team?
-=================================================================================================================
+
 
 How to Answer
 -------------

@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Autonomy And Decision-making Ability Given To Team Members?
-==========================================================================================================================
+
 
 Providing team members with autonomy and decision-making ability can help to increase motivation, creativity, and productivity. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

@@ -1,5 +1,4 @@
-What Feedback Do You Have On Our Team's Training And Development Programs?
-=================================================================================================
+
 
 Asking team members for feedback on the team's training and development programs is crucial in ensuring that team members are equipped with the skills and knowledge needed to succeed. Here's how to answer this survey question and some sample answers for inspiration.
 

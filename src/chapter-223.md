@@ -1,5 +1,4 @@
-How Well Does The Team Address And Resolve Issues Related To Conflicts Of Interest Or Ethical Dilemmas?
-==============================================================================================================================
+
 
 How to Answer
 -------------

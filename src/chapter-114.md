@@ -1,5 +1,4 @@
-How Well Does The Team Encourage And Support Work-life Balance Among Members?
-====================================================================================================
+
 
 How to Answer
 -------------

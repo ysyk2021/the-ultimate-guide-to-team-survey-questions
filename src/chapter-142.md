@@ -1,5 +1,4 @@
-How Often Do Team Members Communicate Outside Of Designated Meetings Or Work Times?
-==========================================================================================================
+
 
 How to Answer
 -------------

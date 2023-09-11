@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Collaboration And Teamwork Between Different Departments Or Teams?
-=================================================================================================================================
+
 
 Collaboration and teamwork between different departments or teams can help to enhance communication, increase productivity, and achieve common goals. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

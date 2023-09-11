@@ -1,5 +1,4 @@
-How Can We Improve Our Systems For Sharing Information And Knowledge?
-============================================================================================
+
 
 How to Answer
 -------------

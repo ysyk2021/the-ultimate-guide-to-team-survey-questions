@@ -1,5 +1,4 @@
-How Often Does The Team Conduct Regular Check-ins And Evaluations Of Its Progress And Performance?
-=========================================================================================================================
+
 
 How to Answer
 -------------

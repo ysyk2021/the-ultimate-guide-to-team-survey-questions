@@ -1,5 +1,4 @@
-What Feedback Do You Have On Our Team's Overall Strategy And Direction?
-==============================================================================================
+
 
 Asking team members for feedback on the team's overall strategy and direction is crucial in ensuring that everyone is aligned towards common goals. Here's how to answer this survey question and some sample answers for inspiration.
 

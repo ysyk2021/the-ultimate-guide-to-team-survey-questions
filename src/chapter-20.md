@@ -1,5 +1,4 @@
-What Are Our Team Goals For The Next Quarter/year?
-=========================================================================
+
 
 How to Answer
 -------------

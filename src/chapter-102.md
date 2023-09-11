@@ -1,4 +1,4 @@
-# What Training or Development Opportunities Would You Like to See Offered?
+
 
 Continuous learning and development are vital for any team to stay current and competitive in their field. However, it can be challenging to identify what specific training or development opportunities would benefit each individual team member. Asking the question "What training or development opportunities would you like to see offered?" in a survey can help identify gaps in skills or knowledge and provide direction for future learning initiatives.
 

@@ -1,5 +1,4 @@
-What Role Does Transparency Play In Our Team's Success?
-==============================================================================
+
 
 Asking team members for feedback on the role of transparency in the team's success is crucial in promoting open communication and trust within the team. Here's how to answer this survey question and some sample answers for inspiration.
 

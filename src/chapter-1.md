@@ -1,5 +1,4 @@
-How Do You Prefer To Receive Feedback?
-=============================================================
+
 
 Asking team members for feedback on how they prefer to receive feedback is crucial in ensuring that individuals feel heard and valued in the workplace. Here's how to answer this survey question and some sample answers for inspiration.
 

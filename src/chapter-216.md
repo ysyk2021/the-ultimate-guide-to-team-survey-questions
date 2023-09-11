@@ -1,5 +1,4 @@
-How Satisfied Are You With The Level Of Transparency And Clarity In The Team's Goals And Objectives?
-===========================================================================================================================
+
 
 How to Answer
 -------------

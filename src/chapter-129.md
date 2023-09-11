@@ -1,5 +1,4 @@
-In Your Opinion, How Well Does The Team Communicate With External Stakeholders?
-======================================================================================================
+
 
 How to Answer
 -------------

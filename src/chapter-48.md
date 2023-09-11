@@ -1,5 +1,4 @@
-How Well Does The Team Delegate Tasks And Responsibilities?
-==================================================================================
+
 
 How to Answer
 -------------

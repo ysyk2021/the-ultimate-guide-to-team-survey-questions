@@ -1,5 +1,4 @@
-In Your Opinion, How Effectively Does The Team Manage Relationships With Suppliers Or Vendors?
-=====================================================================================================================
+
 
 Managing relationships with suppliers or vendors is critical for ensuring that a team has the resources it needs to succeed. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

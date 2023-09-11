@@ -1,5 +1,4 @@
-How Can We Better Prioritize Customer Needs And Requests?
-================================================================================
+
 
 Asking team members for feedback on how to prioritize customer needs and requests is crucial in ensuring that the team is aligned with the organization's goals and objectives. Here's how to answer this survey question and some sample answers for inspiration.
 

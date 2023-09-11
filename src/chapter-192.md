@@ -1,5 +1,4 @@
-How Well Does The Team Encourage And Support Ongoing Learning And Innovation In The Industry?
-====================================================================================================================
+
 
 How to Answer
 -------------

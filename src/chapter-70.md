@@ -1,5 +1,4 @@
-What Types Of Tasks Or Projects Do You Enjoy Working On The Most?
-========================================================================================
+
 
 Asking team members for feedback on the types of tasks or projects they enjoy working on is crucial in promoting job satisfaction and engagement. Here's how to answer this survey question and some sample answers for inspiration.
 

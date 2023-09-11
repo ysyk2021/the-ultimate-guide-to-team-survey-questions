@@ -1,5 +1,4 @@
-Are There Any Communication Barriers That We Need To Address?
-====================================================================================
+
 
 Asking team members for feedback on potential communication barriers is crucial in creating a more open and effective communication environment. Here's how to answer this survey question and some sample answers for inspiration.
 

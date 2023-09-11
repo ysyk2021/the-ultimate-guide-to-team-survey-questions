@@ -1,5 +1,4 @@
-How Well Does The Team Leverage Technology And Tools To Improve Its Performance?
-=======================================================================================================
+
 
 Leveraging technology and tools can have a significant impact on a team's performance. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

@@ -1,5 +1,4 @@
-How Do You Feel About The Level Of Recognition And Rewards For Good Performance?
-=======================================================================================================
+
 
 Asking team members for feedback on the level of recognition and rewards for good performance is crucial in ensuring that individuals feel valued and motivated in the workplace. Here's how to answer this survey question and some sample answers for inspiration.
 

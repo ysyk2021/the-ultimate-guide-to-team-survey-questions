@@ -1,5 +1,4 @@
-On A Scale Of 1-10, How Satisfied Are You With Your Role On The Team?
-============================================================================================
+
 
 How to Answer
 -------------

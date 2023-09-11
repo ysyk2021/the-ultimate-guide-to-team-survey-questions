@@ -1,5 +1,4 @@
-How Would You Rate The Overall Team Dynamic?
-===================================================================
+
 
 How to Answer
 -------------

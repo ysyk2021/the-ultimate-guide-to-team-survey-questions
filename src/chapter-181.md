@@ -1,5 +1,4 @@
-How Well Does The Team Encourage And Support Ongoing Education And Training Among Members?
-=================================================================================================================
+
 
 Ongoing education and training can help team members to stay up-to-date with industry trends and best practices, and improve their skills and knowledge. This chapter will provide guidance on how to answer this survey question and provide sample answers.
 

@@ -1,5 +1,4 @@
-What Communication Tools Or Platforms Work Best For You?
-===============================================================================
+
 
 Asking team members for feedback on their preferred communication tools and platforms is crucial in ensuring effective communication and collaboration within the team. Here's how to answer this survey question and some sample answers for inspiration.
 

@@ -1,5 +1,4 @@
-How Well Does The Team Prioritize And Allocate Its Customer Service Resources?
-=====================================================================================================
+
 
 How to Answer
 -------------
